@@ -1580,4 +1580,282 @@ Want niemand wijkt van zijn levenskring ook maar eén tred links of rechts af, e
 
 EINDE VAN HET EERSTE DEEL.
 
+# Tweede Deel
+
+## 1\.
+
+De zomer was doorgebracht in de Tuinen der Oude Hoop, waar de vroegere tempelgebouwen van de Spes Vetus verbouwd waren tot zomerpaleis, en met de eerste frischheden des najaars trok het Hof terug naar het Paleis van Septimius Severus, waarvan de arkaden over de Via Appia uitzagen, de majestueuze eenvoud van dien marmeren bogengevel overwimpeld en overwalmd door een Aziatiesche weelde --- wimpels van vanen en walmen uit geurvat --- die Rome als exotiesch aanzag, bewonderde, tot mode aannam, navolgde, maar toch zich niet voelde in bloed en klassiekeren smaak: rustiger van lijnen, stiller van tinten, minder van iederendaagsche feestkleuren schreeuwend en rookend van overal ontstokene, al te zwaar geurende aromaten. Had Septimius Severus zeer veel in Rome gebouwd en hersteld, in eene onverschilligheid voor die glorie zelfs zijn naam niet vermeldend in opschrift; had Caracalla gesticht, hoewel nimmer voltooid de Thermen, die droegen zijn naam --- zóo groot, dat Ammianus Marcellinus ze later een Romeinsche provincie noemde, --- de jonge keizer, Antoninus Helegabalus, strooide overal zijn weelde als met hàndenvol schittering uit, zoo dat Rome leek Suza, Ctezifon, Palmyra, Emessa, Tyr of Sidon, maar zeker niet meer herkenbaar was aan wie haar gekend had in minder brutaler glans.
+
+--- Suza, Ctezifon, Palmyra, Emessa, Tyr of Sidon... mijwel, zei de jonge Gordianus Junior; --- hij trad, door zijn cliënten en tafelvrienden omringd, de poorten der Thermparken binnen, langs de portieken aanslenterend tusschen hun dienstbaar gegons en vleierige toestemming ---; maar zeer zeker wordt Rome vróolijk na jaren lang somber te zijn geweest, en hoewel Caracalla ze stichtte, onze goddelijke Helegabalus geeft deze Thermen eerst zijn wijding...
+
+--- Zeer zeker! Onbetwijfelbaar! stemde de paraziet Sertorius toe. Eerst onze goddelijke Helegabalus...
+
+Het koor der cliënten viel in. Gordianus was daaraan gewend, hoorde niet naar het gegons. Zijne oogen knipten licht dicht; een zalig welbehagen vervulde hem al. Na de orgie gisteren ten Paleize was het zeer zeker een rust zich voor te nemen dezen geheelen dag in de Thermen te blijven, er maal en bad te gebruiken, eens in de palestra en het Stadium een kijkje te slaan, en te hooren wat er in Rome omging. Door het peristylium dreef van slenterende Menigte --- heel dicht al trots het nog vroege uur --- een gegons als luide ruisching uit heel groote schulpen, terwijl van uit de piscina het fonteinegebruisch als een stortregen dat gegons overdruischte.
+
+Diep voor den jongen patriciër, zeer bekend en bemind, boog de hooge gestalte van den ostiarius, de portier, die een breed zwaard droeg, en de capsariï drongen om de jongelieden rond, hen helpend hunne toga's af te slaan. Het peristylium rees omhoog met zijne mozaïekwanden, breidde zich uit met zijn vloeren van mozaïek in een verbijsterende immensiteit, scheen een forum van bazilieken en zuilen, arkaden om de galerijen der verdiepingen heen, over wier balustraden de kijkers neêrdroomden.
+
+Over den vloer rijde zich, vierkant aan vierkant, het heerlijk mozaïek der Gladiatoren; maar den wand verluchtten de mozaïeken met een vroolijkheid van vooral waterschepselen: Neptunus, Amfitrite, de Tritonen en Nereïden, op zeepaarden en dolfijnen: een blijde mythologie van plassend en klaterend waterleven in blauwige parelkleuren, in al de glauke irizeeringen van water, waar zonlicht in dartelt, in al de speelschheid van opspattende vlokken schuim, waaruit liefdegodinnen geboren worden, maar in de laátste mozaïeken zoó verwilderd, dat de Romeinen er in herkenden het gloeiende Oosten: Azië, dat de klassieke motieven overwulpschte; zóo, dat de omhelzingen van zeegod en zeegodin verwerden tot --- de koelheid der zee in scharlakener brand zettende --- zinbrallingen; zóo, dat de speelschheid en dartelheid van Tritonen en Nereïden vermonsterden tot saamkoppelingen in fantastische furie: liefdeketenfestoenen van aaneengesnoerde waterschepselen, guirlandes van onbestaanbare maar troebelende wellusten, samengevlochten tot over de wanden heen slingerende kransen van onnavolgbare verwringingen en samensmeltingen: geheel de onmatigheid der Aziatiesche verbeelding, die het leven der zinnen in die plastiek der Oostersche kunstenaars verkrankzinnigend snerpen deed met kreten van meer dan priapische razernij. Caracalla had nog niets gegeven wat vreemd was aan Rome; alleen, om zijn glorie uit te galmen, had hij deze baden gesticht, grooter dan ooit baden waren geweest: éen mijl in omtrek, --- maar hij, die zich noemde zijn zoon, en die deze Thermen voltooien wilde, had in zoo korten tijd, dat het verbaasde, het klassicisme van deze hal opgegierd met een zóo ge-exaspereerde versiering, dat de Romein zich, al ware het in zijn smaak maar alleen, overwonnen, overweldigd voelde door een onweêrstaanbare genialiteit uit het Oosten, vreemd aan het Latijnsche bloed. De god Helegabalus zegevierde. De symbolen van den Dienst en den Dans --- de Hoogepriester, die was uit het Sekselooze Licht, zich incarneerend in Man-Maagd en Middelaar, --- zegevierden in al deze versieringen, waar de seksen verwarden, waar Nereïden in Lesbische weelde verzwemden en Tritonen elkander juichend bereden.
+
+De ijdelende Menigte ging en kwam. Zij sloeg toga af, zij sloeg toga om, en het was in de handen van de capsariï een week uitgeplooi, vleugelwijd, van meest witte en weeke stoffen; vestiplicae, mantelvrouwen, naderden, en met een lach en een scherts, plooiden zij de toga's sierlijk, lieten de vouwen vallen breed en klassiek van schouder en bovenarm. Zij ontvingen een geldstuk, een liefkoozing; behaagziek gingen hare oogen heen en weêr, beloofden zij afspraak voor dien nacht.
+
+--- Ik wil nog niet baden, het is nog te vroeg, zei Gordianus Junior. Laat ons naar boven gaan...
+
+En hij ging, met zijn gevolg van cliënten, de trappen op. Er droomden, neêrkijkend, de nietsdoeners neêr over de balustrade. Een perspectief van arkaden gaf zicht over de boekerijen, zoo volledig en geriefelijk ingericht, dat alleen Gordianus' eigen beroemde bibliotheek er meê te vergelijken was. Velen schreven daar hunne brieven; anderen lazen dichters, historie-schrijvers: het Satyricon van Petronius, geliefde roman van schelm-avonturen, werd het meeste gevraagd. Een dichter las voor zijn epos, verheerlijkend een Romein van aanzien --- tuk om meerdere verheerlijking te dichten voor geld, of zelfs maar voor een gastmaal. Beelden stonden in nissen geschaard, edel van lijn, daar de Aziatische smaak zich nog alleen openbaarde in de teekening der mozaïeken, festoenen en guirlandes der wandversieringen; in de boekerijen was een studieuze rust, die alleen de scandeerende stem van den dichter verbrak met zijn wat eentonige jamben, zacht van geluid, niet verstorend, maar wiegend alleen de lektuur van die anderen. Gordianus liep de boekerijen door, slepend zijn tred na de orgie van dien nacht ten paleize. Lang had zij geduurd. De keizer had gedanst --- geen zonnedans ---: hij had Venus voorgesteld. Hij was goddelijk geweest om aan te zien, hij had een genot aan de oogen zijner gasten gegeven, als nooit nog een keizer gegeven had. Goden, wat was hij mooi en bevallig!
+
+--- Zijne Eeuwigheid zoû van daag in de Thermen komen, zei Sertorius; en de cliënten, waardeerend, juichten toe.
+
+Over de balustrade van de rotonda der boekerijen zag Gordianus in het tepidarium neêr, klaterend van de waterstralen uit vier zilveren tritonen-monden gespoten in vier immense bassins, waartusschen de Menigte omging. De badmeesters beijverden zich om de baders en baadsters, naakt, en velen van lichaam mooi, want daar men wist, dat de keizer zoû komen, en hij gaarne mooie lichamen zag, baadden velen zich om zich te doen opmerken, heimelijk hopende op genot en geluk. De keizer was de eerste, die vergunning gaf tot deze gemeenschappelijke baden, maar in deze vroegte des morgens was nog een kalmte van zinnen en behaag-zucht de eenige passie: opgemerkt te worden nog het eenig genot, naast de zaligheid van het bad zelve.
+
+Gordianus, moê en mat in zijn merg, maar vol week welbehagen in zijne zenuwen, hoorde niet naar zijn cliënten, liet droom-dwalende de oogen weiden over de ongelooflijke spanning van het gewelf, dat uit de bronzen balustrades omhoog zich koepelde: koepeling, waarnaar de beroemdste architekten kwamen kijken en ze ongelooflijk noemden, ook al zagen zij ze met eigen oogen; en het was den jongen Romein of het gewelf een ronde schulp was, vol van de echo's van het watergeruisch beneden. Want vooral uit de immense piscina van het frigidarium, het koudwater-zwembad, zichtbaar ook van de rotonda, ruischte het watergebruisch der tritonende zwemmers, plassende, proestende, lachende, spelende, tusschen de wanden vol beelden in nissen, de zon goud neêrzevende door het looverenvlechtwerk van roze bloeienden bruidstraan, die de zware trossen tusschen de groote bladeren tot een dicht dak van koelte saamstrengelde. Een frischheid van wind, die dóorwoei en een zoelte van getemperde zon mengelde een atmosfeer van zaligheid, die het opgeplaste water nog afkoelde met een getinkel van regenboog-kleurende droppelen. Het onophoudelijk ververschte water werd langs de aquadukten der Aqua Marcia over den Drususboog den Thermen binnengevoerd, gulpte breed uit leeuwenmuilen ontzaglijk, in een wateren overdaad en frischheid, die den gapenden monsterkoppen onophoudelijk ontstroomde. Dit was alles van afmetingen bovenmatig, van welvingen ongelooflijk, van wandvlakten eindeloos, eindeloos: een alruime koelte van lucht en van water, alleen al weldadig te ademen en ontspannend voor zenuwen, en vele baders, nog niet gekleed, maar slechts gekapt, gebalsemd, gemasseerd en gegeurd, den wijden badmantel om, lazen bij de balustrade de acta-diurna, groote wastafelen aan den wand, waarop vermeld het nieuws van den dag, --- of keken neêr, droomden neer naar het frissche gespeel van die zwemmers.
+
+Tot plotseling een aandoening golfde, en òpkeken de droomers. Een gerucht ging, dat de keizer gekomen was, --- dat, door vier herten getrokken, zijn kar aangerateld was voor de Poort van het Peristylium.
+
+Die gekleed waren, haastten zich daarheen, en ook Gordianus veronachtzaamde niet zich op des keizers weg te bevinden. Bijtijds was te midden der zijnen de jonge patriciër in de rij, want de Menigte verdeelde zich en liet open den weg voor den keizer, op bevel van den ostiarius, die zijn zwaard had getrokken en het zwaaide tot teeken. Een fanfare van trompetten klaterde. Blij was de Menigte, als steeds, wanneer zij den keizer aanzag. Zijne cubiculariï-palatini --- de hof-officieren --- gingen hem voor, maar hij kwam intiem, met heel klein gevolg en enkele gunstelingen. Toch werd --- en het trof --- voor hem uit op bronzene schaal het vuur gedragen, als voor eene keizerin. Een gemurmel van gejuich --- niet meer --- omdat hij zonder statie verscheen, gonsde even, verdoofde dadelijk. Met een helderen schaterlach, gemaakt, maar toch vol kinderlijke vroolijkheid, was de keizer binnengekomen, glimlachte dadelijk rechts en links, en hij groette meer met den blik en dien glimlach, dan met een beweging des hoofds. Wie hem niet gedurende den tijd had gezien, verstreken tusschen zijn Triomf en dit najaar, zoû hem veranderd hebben gevonden in zóo korten tijd. Niet in gestalte en trekken, wel in uitdrukking van gelaat. Terwijl hij heel langzaam, pratende, voortschreed, gehuld, niet in toga, maar in dalmatiek --- een langen mantel van hermelijn en scharlaken, die met een fibula van karbonkel hem op den schouder gesloten was, -- had zijn glimlach een behaagzucht, die lokte, maar vooral lonkten zijne oogen links en rechts, zijne groote, violette, even toekwijnende oogen, die zeer op die zijner moeder, Semiamira, waren gaan lijken. Hij was blootshoofds, maar de blonde krullen, die hij lang droeg, waren opgestrikt van voren, op de wijze der Grieksche Erosbeelden, en zij waren licht overstuifd met goudpoeier. Zijn gelaat was niet geschilderd, maar slechts even getint de brauwen zwart en de lippen iets vuriger rood dan natuur was. Hoe weinig, hij scheen veranderd; hij was niet meer het dansende kind van Emessa. Daar was hij geweest niets dan de kindgod en godschoone priester, vol devotie zich wringende voor het idool, en, bijna onbewust en spontaan, zich gevende aan de Menigte, die hem aanbad --- in een zaligheid om die aanbidding; in een knapevreugde, dat men zoo zeer hem liefhad; in een voldoening van kunstenaar, dat men zóo toejuichte de lenigheid van zijn lijf, de zekerheid van zijn evenwicht, de gratiën zijner gebaren en passen. Toen was hij zoo wel Hoogepriester als een onbezorgd kind geweest; nu, eenige maanden ouder, nauwlijks zestien, scheen als met haastigen bloei zijn mystieke man-vrouwelijkheid, te Emessa extatiesch ernstig en devoot, zich ontwikkeld te hebben tot eene, wie dit niet verwachtte, zeer treffende perversiteit. Hij voelde zich aangezien, bewonderd, en zijne oogen kwijnden links en rechts, lonkende, zoo als de oogen zijner moeder lonkten. Zijn mystieke aureool was getaand, hoe dwepend vroom aan de Zon hij gebleven was. Het was niet meer alleen de Middelaar, die erbarmend der Aarde zich gaf; het was een bedorven kind daarbij, dat rechts en links beloofde. Overgeplant sedert zoo korten tijd, vergiftigde al de daar, in Emessa, hem eigene bloem zijner in incarnatie geweifeld hebbende ziel. Zijne loutere Man-Maagdelijkheid prostitueerde zich, niet meer enkel ritueel, ook voor dartel genot. Dat was niet slechts de Hoogepriester, die zijn lichaam zilverde, zijn haren guldde, vooral ter eere des Gods, hoe hij ook verrukte in de zwelging der duizende aanbidderen, die den god aanbaden, omdat de priester aanbiddelijk was; dat was vooral een bedorven kind, dat de rol speelde van keizer van Rome, Imperator der Wereld. En daar hij van natuur, en gekweekt in den Dienst, een gratie en waardigheid had om zich voor te doen in welke rol ook --- nu die van Imperator en keizer --- scheen .hij, verwarrend, méer dan keizer en minder: bleef hij een god en werd liefdeknaap ook; was god, liefdeknaap, en was keizer...
+
+Maar tevens zoû nog iets anders getroffen hebben wie hem in Emessa gezien had: een doldartelijke vroolijkheid en kinderlijke blijheid --- hem wel altijd eigen geweest, maar daar ginds in het Oosten meer verborgen achter den hieratischen ernst, dien hij, priester en god, meende in zijn uitbeelding waar te moeten ne-men. Hoe vroom hij gebleven was, hij meende het niet meer van noode zich te verbergen, gaf zich geheel als hij was. Tusschen zijn gunstelingen was hij schaterende binnengekomen, met zijn gemaakten, maar heel helderen en spontanen lach, aanstekelijk, zoo dat allen lachten. De gunstelingen lachten, en de zich scharende kijkers lachten. De decurio-cubiculariorum, die het vuur voor hem uitdroeg, keek om, wilde weten, nieuwsgierig. Allen wilden weten en Sertorius, die had gevraagd, zeide tot Gordianus:
+
+--- De keizer lacht, omdat, toen zijn kar stil hield voor de Poort, twee van zijn herten zich in elkanders geweien verwarden en heel hard trokken en vechten gingen... Kijk, hij lacht er nog om als een kind!
+
+Maar Antoninus was ook een kind, --- het keizertje, niet ouder dan zestien, statue-mooi en efebe-rank: een uitzondering, een bizondere, om zijn zeer bekoorlijke mengeling van priesterlijkheid, vrouwelijkheid, kinderlijkheid, van gratie en statie te zamen, bekorende al wie hem zag. Hij liep tusschen Antiochianus en Aristomachos, den praefekt en den tribuun, die hem Rome gered hadden tijdens het oproer in het Kamp, en wier trouw, wier liefde hem bij zouden blijven tot zijn dood. Hij was omringd door anderen: Gordus en Protagenes waren wagenmenners met wie hij zich mat in het Stadium --- want het wagenmennen was hem zeer lief geworden --- en zij waren met Murissimus en de beide officieren, naar men zeide, zijn lijfgunstelingen. Ook Ganadasa, de Indiër --- den keizer in verrukking aanbiddende en hem nauwlijks wagende den slip van zijn mantel te raken --- en Matthias, de dikke Christen, zonder zinnelijke eerzucht, alleen hopende op een senatorenzetel, volgden hem op den voet. De keizer lette Gordianus dadelijk op, liep op hem toe, stak hem beide zijne handen toe, die de patriciër eerbiedig kuste. En nog nalachende, om de vechtende herten, met den dubbelzinnigen blik zijner violenoogen groetende links en rechts, trad Antoninus het Peristylium door, langs de groep van Dirke, aan den Stier gebonden: reusachtige tragedie van wraak, van woede, van wanhoop, in marmer veronbewegelijkt,... Door het tepidarium, waar hij met de hand de baders --- mannen en vrouwen --- toewuifde, ten teeken, dat hij geen plichtpleging wenschte, trad hij tusschen de spierige kracht van den op zijn knots steunenden Herkules en de jonge bevalligheid der godin Flora, beiden onbewegelijk, marmer, rijzende in reuzenissen, toe op zijn eigen vertrek. Slaven rukten den voorhang weg en de cubiculariï rijden zich aan den ingang, terwijl de keizer met de zijnen binnentrad.
+
+--- Doorloopen! zei de cubicularius-palatinus en maakte met zijn zwaard een beweging tegen de Menigte, die, achter den keizer aanzwermende, zich te hoop drong aan den ingang.
+
+--- Doorloopen! geboden zijn makkers.
+
+--- De gordijnen blijven open...
+
+--- Het is vergund naar binnen te zien...
+
+--- Zeker, het is vergund den keizer te zien baden...
+
+--- Maar niet stil blijven staan...
+
+--- Doorloopen! Doorloopen!
+
+Hun zwaarden zwaaiden. Onophoudelijk herhaalden zij het bevel op een dreun. De Menigte maalstroomde om zichzelve, krinkelde rond, golfde heen en weêr, en de massa's verdrongen zich, maar bleven bewegelijk. Binnen in de badzaal des keizers wachtten hem Vasthi, Narr, Livilla, Statyra, Xylitta, en voor het bekken geschaard stonden zes reusachtige Libyers, naakt, met een okeren lendedoek.
+
+--- Neen, waarlijk, zei Antoninus; ik ben niet in mijn paleis verwend. De baden zijn er allerarmelijkst... Na een feest als gisteren is het aangenaam een goed bad te nemen... In het paleis is het heusch geen genot... En na een slapeloozen nacht moet ik mij nog vermoeien met hierheen te komen om wat water van verschillende lauwte... En dan roepen de Romeinen, de oude, nog uit, dat de weelde iederen dag grooter wordt... Maar in het Palatium zijn zelfs geen Thermen! O, als ik de Thermen van mijn vader Bassianus Antoninus, Caracalla, zoo als zij hem noemen, eens òp kon laten nemen en naar den Palatinus verplaatsen! Maar onze architekten kunnen niets!
+
+Hij lachte, om zijn eigene woorden, in zich gestreeld door zijn denkbeeld van enormiteit en onmogelijkheid; dat wat hij voor zich zag: de Thermen, tot 's keizers gemak, opgenomen en door de lucht zwevende, verplaatst naar den Palatinus. Een honger naar onbereikbare dingen werd plots in hem wakker. Hij liet zijn dalmatiek van zijn schouder in de handen van Vasthi glijden. Hij was naakt onder zijn mantel; alleen geschoeid: de vrouwen ontschoeiden hem, terwijl hij neêrzat op een schabel.
+
+--- Vrienden! zei Antoninus en hij wees op de bedden in het rond, tegen den wand. Rust uit, of wilt ge liever baden, neemt een bad, maar doet wat je wilt en laat deze dag vrije blijheid zijn na al de woelige dolheid van gisteren. Murissimus, je bent moê. Je hebt blauwe kringen onder je oogen. Narr, hoû een spiegel op... Heb ik kringen onder mijn oogen?
+
+De jonge Moor knielde neêr voor Antoninus, en hief een zilveren spiegel op, in een rand saamgestrengelder eroten.
+
+--- Neen, Meestertje, zeide Narr en hij grinnikte.
+
+Het was wel waar. Niemand zag Antoninus aan, dat hij, een kind, gisteren, in een orgie had gezwolgen, dronken was geweest van rozewijn, daarna niet langer dan een uur had geslapen. Hij was als een bloem zoo frisch. Eene onontvankelijkheid voor de sporen van het verleden --- voor de gevolgen van den dag en den nacht van gisteren --- gaf hem zeker een ongewone niet-menschelijkheid, maakte hem een levend beeld, en zelfs na liefkoozingen als die van gisteren, bleef hij uiterlijk onaantastbaar, een jonge god gelijk. Ontschoeid zat hij op de schabel, en glimlachte; kijkende naar de Menigte, die voor de deuren der zaal heen bewoog en binnen zag. De gunstelingen sloegen mantel of toga af, vlijden zich neêr: anderen gingen naar de piscina. Antoninus bemoeide zich niet meer met hen; Ganadasa bleef, handen gevouwen, naar hem staren, en Matthias, wachtende, uitspiedend naar den Bisschop van Rome, die komen zoû, bleef bij den ingang zitten.
+
+Antoninus rekte zich uit.
+
+--- Het warme bad! beval hij en stond op. De vrouwen geleidden hem, steunden hem, in plichtpleging, bij de ellebogen, en hij kietelde Livilla, uit vroolijkheid. Het Hoofd der Libyers opende de kranen: zilveren slangen, die zich kronkelden, en nu, heet wasemend, het water spogen in mollig gerond bekken van bloeddooraderd kornalijn. De wanden van jaspis en Numidiesch marmer besloegen dadelijk van den stoomenden wasem, dropen van zweetende droppelen. Het bad vulde zich snel en bijna kookte het water.
+
+--- Zoo warm mogelijk! beval Antoninus.
+
+Hij bleef zijn glimlach behouden. Hij wist, dat door de opene deuren de Menigte steeds naar hem zag. In den Dienst en den Dans, te Emessa, had hij geleerd zich altijd in sierlijkheid voor te doen. Hij voelde altijd op zich den blik van de Menigte, en bewonderend was die blik, zelfs aanbiddend. Zij hunkerde hem te zien baden, de Menigte, maar de intimiteit van het bad bleef ceremonie en ieder gebaar een gratie.
+
+--- Het bad is heel warm, Augustus! zei de Libyer en trok zijn hand terug. Te warm misschien...?
+
+Antoninus verwaardigde zich even te voelen. Het bad kookte.
+
+--- Dompel mij onder! zeide hij.
+
+--- Augustus, het bad is te warm... Laat mij koelen...
+
+--- Niet te veel...
+
+Een tweede slang verlauwde het bad. De temperatuur was nog hoog.
+
+--- Dompel mij nu, zei de keizer.
+
+Hij wierp zich neêr op de rustbank in het midden der zaal, steeds met zijn glimlach, lonkende naar de kijkende Menigte. Zijn bevallige knapeleden knakten neêr, zoo als zij neêr knakken konden aan het einde van den Dans. Twee Libyers namen voorzichtig hem in hunne enorme zwarte handen, bij het blonde hoofd, en de kleine voeten. Zij traden met hem toe op het bekken, zij dompelden hem in...
+
+--- A...ha! riep Antoninus.
+
+De Libyers hieven hem op.
+
+--- Dompel! gebood de keizer.
+
+De Libyers dompelden hem, in, uit, in, uit; eindelijk beval Antoninus:
+
+--- Laat mij los...
+
+Zij lieten hem los. Hij bleef kooken, in zijn wasemend water en door den wasem heen glimlachte hij Ganadasa toe, die, van verre, murmelend, naar hem staarde.
+
+--- Indiër! zeide hij. Waar denk je aan?
+
+--- Aan U, Eeuwigheid!
+
+--- Waarom heb je mij nog niet den voet gezoend?
+
+--- Uwe Eeuwigheid, omdat ik niet dorst!
+
+--- Durf! zei Antoninus.
+
+Uit het stoomende bad richtte hij zijn gerozigden voet, stoomdampende. Ganadasa naderde en kuste de teenen met een trilling van welbehagen, maar te-gelijkertijd duwde Antoninus hem met den voet in het gezicht, zoo dat de Indiër op de treden van het bekken rolde in een gespatter van water, dat 's keizertjes speelsche voet hem nazond.
+
+Antoninus barstte in lachen uit; aan de deur gierde het volk.
+
+De Indiër rees op.
+
+--- Dank, uwe Eeuwigheid! zeide hij. Dank: ik heb u de teen mogen kussen... Ik heb het water van uw voet mogen drinken... Een week kan ik bestaan van die gunst, zonder te eten, zonder te drinken...
+
+De keizer lachte, kind-blij, omdat hij Ganadasa zijn zijden samaar had bespat, en gelukkig om des Indiërs aanbidding. Hij wendde in het bad zich om, en hief zich zoo, dat zijn hoofd dook in het water, en zijn onderrug, roze welvende, uitstak. Het volk aan den ingang verdrong zich en juichte.
+
+--- Doorloopen! riepen de cubiculariï barsch.
+
+--- Doorloopen! barschte de keizer ze na, uit zijn bad, kluchtig de stemmen der officieren na-bassende en daar zijn hooge falsetstem oversloeg, barstte hij in lachen uit, en de gunstelingen lachten, de Menigte lachte. Antoninus had zich zaliglijk uitgestrekt en lag te kooken, als een visch in een ketel. Over hem dampte de walm.
+
+Maar bij den ingang gezeten, maakte de Christen Matthias plotseling een wenk en een teeken tot een, die door het tepidarium aankwam en hij verhief zich, en naderde Antoninus.
+
+--- Uw heilige Zonheerlijkheid! zeide hij. Zoû de bisschop van Rome niet mogen komen? Dagen lang had Uwe Heiligheid gewichtiger zaken aan de hand en kon Zij den bisschop niet zien, maar de Christenen zijn toch waarlijk heel trouwe dienaren van het gezag Uwer Heiligheid, en mag hun hoogepriester nu niet verschijnen voor den Hoogepriester der Zon?
+
+--- De bisschop van Rome? vroeg Antoninus. Dat is het hoofd van al jullie bisschoppen, niet waar? Zeker, wil ik je pappias ontvangen! Zeker wil ik met den ouden man spreken en hem eens stellen op zijn gemak. Maar na mijn bad. Laat hem wachten.
+
+Matthias trok zich terug en Antoninus beval:
+
+--- Koel af!
+
+Het hoofd van de Libyers draaide aan de vier kranen, regelend de lauwte der wateren. Uit vier gespletene zilveren slangemuilen tegelijk stroomde het lauwere water, terwijl het stoomwater geleidelijk wegliep. Uit lange vazen goten de Libyers Syriesche vloeibare nardos het bad in en zwaar zwijmelde de geur ervan op, als een heel dierbaar aroom van het verlatene rozenland, daar ginds... Blondjonge triton, heel blank, en blij lachende, speelde Antoninus, dook onder, dook op, wentelde om, en telkens weêr riep hij:
+
+--- Koel af! Koel af! Koel dan af!
+
+De Libyers draaiden de kranen. Het water verfrischte al meer en meer; het werd langzamerhand heel koud. Tot op zilveren schalen twee der Libyers aantorsten klompen sneeuw, als of zij kleine alpen aandroegen...
+
+--- Koel af! Koel af! riep Antoninus.
+
+De Libyers wierpen de sneeuw in het bad. Zij klonterde over den keizer heen, dadelijksmeltende over zijn lichaam. Hij had een kreet, om de koude, geslaakt, een kreet van wellust en welbehagen... Steeds verfrischte het loopende water, de sneeuw vloeide weg; meerdere geur werd het bad ingegoten, en langzamerhand werd het water weêr lauw...
+
+Antoninus bleef zaliglijk liggen en lachte, omdat hij Ganadasa steeds roerloos naar hem staren zag, in staâge aanbidding. Hij beval:
+
+--- Masseert me, Libyers!
+
+De twee mannen, die hem gedompeld hadden, hieven hem op, in vier enorme handen. Hij lag in hunne opheffing, frisch gemarmerd zijn beeldblanke leden en op het rustbed in het midden der zaal in blanke dwalen gewikkeld, droogden zij, vier van hem, hem zachtekens, zachtekens af. De Menigte aan den ingang zag toe.
+
+--- Doorloopen! barschten de cubiculariï.
+
+--- Doorloopen! basstemde het keizertje na, in scherts!
+
+Goden, wat was hij mooi, zoo naakt! En wat was hij vroolijk en goed van humeur! Zij hadden hem gezien in de statie's van den Triomf, van den Dienst, van den Dans: dan scheen hij een idool, een god zelve; nu was hij als een vroolijk en heel lief kind... Wat een lievert toch was hij, zoo als hij daar lag, zoo fijn, zoo rank en zoo blank, in de enorme pooten van die zwarte kerels.
+
+--- Calpurnia, kan je wel zien? Jawel, maar doorloopen moet je... Dat doet niet: ik kom telkens terug... Kijk eens; hij wordt geknepen, gewreven... Zes kerels, zwarte, zijn bezig... Ik zie niets: toe laat mij ook eens kijken... Lucius, kan je wel zien... Jawel, ik loop heen en weêr... Hij ligt er als een Adonisbeeld... Ja, hij is zoo wit als was... Mooi, zoo wit als hij is bij die zes zwart-naakte Mooren... Goden, die kerels zullen hem breken! Neen zeg, hij breekt niet zoo licht! Kijk, zijn armen heeft hij twee van hen rondom hun nekken geslagen om beter te rusten: nu, die kerels zijn ook wel af! Zoo liefjes omhelsd te worden! En de derde masseert met zwarte vingers hem over zijn lieve gezichtje... Zie je wel, de vent doet het met een zalf... Dat is een tooverzalf, die maken ze daar in Fœnicië, om altijd jong te blijven... Zeg, zoû Calpurnia daar dan niet om vragen: die is afgetakeld, hoor, in het laatste jaar! Kijk, twee andere kerels masseeren hem ieder een been... En de zesde rekt hem zijn teentjes uit! Zoû het een pleizier zijn zoo te worden geknepen, gedrukt en getrokken... Zeg, wat doen ze, Verus, martelen ze het aardige keizertje? Het lijkt wel of die geradbraakt wordt! Vindt die dat lekker zoo mishandeld te worden?! Nou, ik word liever door meiden geknepen! Ik niet: meiden kunnen het niet: je moet er kracht voor in je pooten hebben... Nu, hij moet wel kràken in de klauwen van die zes kerels... Kijk toch, hij is bijna onzichtbaar tusschen die zes zwarte donders! Die twaalf zwarte pooten, die hem pakken aan alle kant... Gelukkige kerels, hè! Zeg Tarquinius, heb jij den keizer al aangeraakt? Ja, hij heeft, terwijl die voorbij ging, me met zijn vinger op de neus getikt... Hij is een kleine grappemaker: dat doet niets: als die je aangeraakt heeft, wordt je gelukkig... Moet die monnik daar, ook eens gaan baden? Dat is de pappias van de Christenen... En die andere, zie je, dat is de Christen Matthias... Kijk, de keizer staat op!! Goden, wat is hij een lieveling! Hij ziet heelemaal roze van al dat geknijp... De zes kerels hijgen ervan... ze grinniken ervan... ze kwijlen ervan...
+
+De keizer was opgerezen. En plotseling zagen de toeschouwers hem zich in lenige verwringingen krinkelen, zich buigen voor-, achterover, ter zijde, heel snelle wirrelpassen doen, zoo als hij zich oefende steeds na het bad, voor den Dans, in de bijna ongelooflijke gebrokenheden van zijn gewrichten. Het bloed, na het bad en de beweging, tintelde als met een rozengloed naar zijn wangen en zijn voorhoofd bloosde. Hij wierp op het bedde zich neêr; de vrouwen naderden hem om hem te ontharen, zorgvuldig met tangetjes ieder haartje uittrekkend en de prikkeling van den huid dadelijk balsemend. Hij liet de vrouwen begaan, een luiheid beving hem, zijn hoofd viel over de kussens naar achteren, en tusschen de bezige vrouwen leek hij waarlijk een Adonis, door nymfen verpleegd.
+
+Hij sliep bijna, zaliglijk moê van het bad en van de massage. Toen hij de oogen opsloeg zag hij Matthias, den Christen, voor hem staan, de handen gevouwen in smeeking.
+
+--- Wat is er? vroeg Antoninus.
+
+--- Uw heilige Zonheerlijkheid... màg niet de bisschop van Rome...
+
+--- Jawel, zei Antoninus. Hij mag...
+
+--- O, heb dank, heb dank, Uwe Heiligheid...
+
+Matthias repte zijn strompelende dikheid naar de poort van de badzaal en wenkte...
+
+--- ...De Christenen zijn in aanzien! mompelden de toeschouwers. Matthias, die wordt nog senator... En hij is een kroeg- en bordeelhouder geweest...
+
+In de Thermen gaf Antoninus wel eens Audientie. Hij zond de vrouwen van zich, wentelde zich in de kussens gemakkelijk en wenkte twee van de Libyers, die ter zijde van hem knielden, hem zacht streelende namasseerend, terwijl hij een arm ieder van hen om den nek sloeg. Zoo lag hij, toen Matthias den pappias, Zefyrinus, den bisschop van Rome, binnen geleidde...
+
+--- Kom nader, kom nader, pappias! riep de keizer vroolijk.
+
+De oude schuchtere man in zijn pij naderde en instinctmatig wees Antoninus, sierlijk gebarend, naar zijn voet en zijn knie, meenende, dat de pappias hem kussen wilde, maar de bisschop begreep niet en boog heel diep en Antoninus drong niet aan.
+
+--- Schuif een schabel voor den pappias nader...
+
+--- Uwe Heerlijkheid is te goed...
+
+--- Ga zitten, ga zitten, pappias... Ik ben blij je eens te zien, ik ben blij eens met je te praten... Ik ken beter de Christenen, dan je misschien wel denkt...
+
+Zacht kreunende in de wrijvende handen der Libiërs, zong hij zijn zinnetjes uit met een gemaakt hoog en vriendelijk falsetstemmetje: goed van humeur wilde hij den ouden man vriendelijke dingen zeggen, niettegenstaande hij zich heel goed herinnerde den raad van zijn grootmoeder, Mœza...
+
+--- En wat zoû je nu wel willen, pappias?
+
+--- Zoo weinig, o Uwe Heerlijkheid. Zoo heel weinig wenscht een oud man, zei Zefyrinus, de handen gevouwen, zittende in zijn pij vlak naast het bedde, waarop de Adonis-achtige knaap lag te lustkreunen in de handen der Libyers. Zoo heel weinig... Ziet u; Matthias, een trouwe dienaar van u, o Augustus, heeft in Rome een vriend en geloofsgenoot, die bezit een kleine taveerne, waar gaarne de soldaten eens komen drinken...
+
+--- Een kroeg en een bordeel, zoo als Matthias zelve in Emessa hield...
+
+--- Die geloofsgenoot, Papinianus, stond ons de taveerne af, Uwe Heerlijkheid, om te vergaderen en onzen God en Zijn Zoon te aanbidden, zoo als dat wel vergund was al onder uw genadigen grootvader Septimius Severus... Maar zoo gaarne, o zoo volgaar-ne, zouden wij nu die taveerne willen wijden tot een vasten tempel, een kerk, o Uwe Heerlijkheid, opdat onzen God en zijn Zoon een voegzame huizing worde gegeven...
+
+De keizer Antoninus glimlachte, zich wringende in de vuisten der Libyers: hij herinnerde zich wat Mœza gezegd had: nimmer den Christenen een tempel toe te staan, omdat de orakels der Magiërs --- het was een geheim --- hadden voorspeld, dat de Christenen --- zóo zij een tempel erlangden --- meester van geheel Rome mettertijd zouden worden. Er was geen kwestie van den ouden pappias zijn verzoek toe te staan. Maar in goed humeur was Antoninus; zoo frisch en zoo gloeiwarm tevens voelde hij zich na zijn bad in de onvermoeid wrijfstreelende handen der Libyers, wie hij, liggende, hing om den nek --- en hij wilde wel eens met dien ouden man praten, en hem toonen, dat, al stond hij geen tempel toe, Helegabalus mild en verdraagzaam was en zijn zonnegenade erbarming inhield voor vele andere, kleinere en mindere goden. En daarom begon Antoninus:
+
+--- Een voegzame huizing, pappias...? Een kroeg-en-bordeel voegzame huizing voor een god en zijn zoon? Niet, dat ik ben tegen wijnplenging en dienst der natuur, maar toch dunkt mij een armzalige kroeg en een vies bordeel geen sublieme plaats om in tempel te worden herschapen... Maar ik weet, jullie Christenen zijn nederig, jullie Christenen doen heel eenvoudig... Ik weet meer van je af, dan je denkt, mijn brave oude pappias... Zie je, daar in Emessa, op den Starretoren hebben de Magiërs mij heel veel geleerd, van de Geheime en Onzienlijke Dingen, van heel diepe Mysteriën, en ze hebben mij ook wel gesproken van mysteriën van de Christenen... Ik weet meer van je af dan je denkt... Ik weet, dat je zoo goed als àllen, die aanbidden en eeredienen, offers wijdt...: spreek niet tegen: ik weèt het, pappias... Ik weet, dat je op je bijeenkomsten je bloed mengelt in een schaal en het drinkt... Ik weet, dat je godszoon was... de zoon van een timmerman! Waarlijk, ik weet er wel wàt van... Alle godsdienst is mij heel belangrijk, --- om de idee, dat de menschheid niet anders kàn dan aanbidden, zoo niet steeds de Glanzende Waarheid, dan toch een Illu-zie, --- en van àlle godsdiensten weet ik de mysteriën, hoe jong ik ook ben, pappias, en al zal ik nooit zoo een mooien grijzen baard hebben, als jou over de pij neêrdaalt...
+
+En speelsch trok hij den ouden bisschop den baard en ging voort:
+
+--- Nu, pappias, als je nu bent overtuigd, dat ik meér weet, dan een andere knaap van mijn jaren, laat ons dan eens spreken als Hoogepriester tot hoogepriester: ik van de Zon, jij van Christus... En als wij dan eens spreken wìllen, dan moet je mij, pappias, toch toegeven, dat het alles het zelfde is... Dat alle godsdienst het zelfde is... Zie je, ik weèt --- ik weet meer, dan je denkt --- ik weèt, dat in jullie godsdienst --- wat treurig en somber, --- is deze idee: liefde-voor-allen; maar meen je waarlijk, mijn oude brave pappias --- en hij trok den bisschop zijn baard --- dat jullie dat hebben uitgevonden?? Liefde-voor-allen: je denkt, dat is een nieuw idee en een mooi idee, en dat is geen idee van de vervlogen eeuwen... Beste pappias, ik ben een leerling van den knàpsten Magiër; Hydaspes, die mij, helaas, niet gevolgd heeft, heeft zelve mij geleerd... Beste pappias, die idee is zoo oud als de wereld... Denk je soms, dat in ònze heilige Mysteriën de Zon ook niet is liefde-voor-allen? Heeft de Zon niet allen lief? Bestraalt Hij niet allen? En ik, Zijn Incarnatie, heb ik niet allen lief? Bestraal ik niet velen? En zal ik niet meerderen nog bestralen? Geloof mij, pappias, brave pappias met je grijze baard...: het is alles, alles het zelfde! De symbolen alleen verschillen. Je godsdienst is heel belangwekkend en is vooral iets nieuws, hoewel ik niet geloof, dat dat treurige, sombere, zwaarmoedige, gedrùkte, dat jullie aanhangt ooit de blijheid van onze Goden kàn overwinnen! Neen, nooit geloof ik dat! Er is geen levensvreugde in jullie! Verstikken zullen jullie in je eigene treurenis! Ik neem aan, dat je Christus de incarnatie was van de Godheid, waarom niet: er zijn er zoo vele geweest voor mij en er zullen er na mij komen... Maar hij was niet béter dan ik! Niet goddelijker was hij dan ik! En pappias --- onder òns, Hoogepriesters, gezegd --- het is alles, het is alles het zelfde! Onze Zon is jullie God, en Christus ben ik, en omgekeerd; de symbolen verschillen alleen maar; God is de Zon --- het Licht --- want de Zon, dat weet je --- onder ons Hoogepriesters gezegd, --- is zèlve Symbool; God is het Licht. Ik ben de Zoon van het Licht: dat is het zelfde als in jullie godsdienst. De Man-Maagd, Adam-Heva...: ik weet, pappias, dat je hem, in diep geheimenis, erkent: spreek me niet tegen: ik wèet het: ik weet meer, dan je denkt. Hydaspes heeft mij geleerd en ieder woord van hem heb ik in mijn herinnering bewaard... De Zwarte Steen is een heilig symbool, maar niet meer --- onder ons, Hoogepriesters, gezegd: jullie hebben weêr een ander symbool: het Kruis: een beetje vreemd, vind ik, een straftuig voor slaven en misdadigers, maar het is mogelijk, dat mij het symbool ontgaat: ik weet zeker, dat jullie ontgaat òns symbool, de fallus, de Zwarte Stéen, de heilige vitaliteit der Natuur... Zoo zijn er dingen, waar wij het nooit over eens zullen worden: dat ligt hierin --- heeft mij Hydaspes gezegd, --- omdat wij levensblij zijn en jullie onderdrukt van ziel en van natuur somber... Maar al verschillen wij in de symbolen, wàt wij aanbidden is geheel het zelfde --- alleen Helegabalus is de allerwaarste incarnatie, het allerheiligst symbool en de Magiërs hebben De Waarheid gevonden... Stil, laat mij even spreken, pappias: ik vind het heel belangwekkend met je te spreken... Je bent de eerste met wien ik weêr spreek, nadat ik Emessa verlaten heb... Daar was het mij héel wel, in den Tempel, op den Toren, bij Hydaspes... Ach, hij heeft mij niet willen volgen... Daar was het mij heél wel... Ik wil je alleen dit nog zeggen: verdrukken zal ik je godsdienst niet. Eeredien vrij je God en Zijn Zoon, maar wil je sanctie aan dien dienst geven in ònze oogen... breng dan in ceremonie het kruisbeeld in den heiligen Zonnetempel, daar waar ik àlle goden vereenigen wil, daar waar àlle goden de dienaren zullen zijn van mijn God, van mijn hoogen God van Licht en van Eeuwigen Glans... Want DE WAARHEID... hebben mijn Magiërs gevonden en Helegabalus, de Glans, het Licht, ben ik, pappias: zij zijn allen in mij ge-incarneerd!
+
+De knaap, spelend met den grijzen baard van den bisschop, had deze zinnen gemaakt zangerigjes van zijn lippen laten vallen, zich onderwijl wringend van lust en krakend onder de wrijfstreelende vingers der beide Libyers; behaagziek, had hij dadelijk doorzien dezen ouden man niet te kunnen behagen door de schoonheid van zijn lichaam, en daarom wilde hij hem winnen voor zich door de mystieke kennis, die hij wist; hij herinnerde zich Hydaspes' leeringen; hij herhaalde, leerling, de woorden zijns meesters, en tevens paste hij op niet meer te belooven, dan wat de oude Mœza hem had toegestaan te belooven, nog zeer weinig zeker in de uitoefening van zijn gezag en gaarne nog doende zoo als hem zijn grootmoeder ried, zoo zij niet tegen zijn eigen verlangen in streefde. Goed, de Christenen zouden niet vervolgd worden; de blijheid des levens vergunde ook een vrijheid van godsdienst, zoo slechts alle priestercolleges zich bogen voor den Zwarten Steen als voor het Hoogste. En Antoninus, die niet anders dacht dan dat de bisschop hem te voet zoû vallen en danken, verbaasde zich toen de grijsaard onbewegelijk bleef, een lok van zijn baard in de plagende hand van den keizer, en eindelijk, aarzelend, schuchter zeide:
+
+--- Augustus, wel weet ge vele wijze dingen, maar Hydaspes daar ginds heeft, gewis, u de grootste wijsheid nog niet geleerd. Wel zijt ge heel goedertieren, en overstelpt mij uwe genade, Augustus, ook al weigert ge den grijsaard een kleine taveerne om te wijden tot Christelijk heiligdom, maar ik kan niet anders dan u om nog grootere genade smeeken en u bidden de Christenen en mij niet te toornen, als ik verklaar, dàt niet te kunnen doen: ons kruisbeeld in ceremonie in den Tempel van de Zon te brengen en de Zon boven God te aanbidden: God, uit wie de Zon en het Licht zijn...
+
+Antoninus werd rood van toorn.
+
+--- Je weigert? riep hij; zijn stem sloeg over.
+
+--- Ik kan niet anders dan, in diepsten ootmoed voor uw keizerlijk gezag, weigeren, Augustus.
+
+--- Je weigert je gekruisigden God, je armzaligen Godszoon, die een slavendood stierf, in ceremonie in MIJN Tempel te brengen, waar ik hem duld in den afglans van het hoògste Licht??
+
+--- Augustus, ik mag niet dan weigeren. Ik ben een oude, zwakke man, Augustus, en mijn leven is niet veel waard, maar wilt ge mijn leven om uw toorn te koelen, neem het en gebied, dat men mij martele en voor de beesten gooie. Ik zal geduldig mijn lijden dragen, zoo als onze vaderen ons het voorbeeld hebben gegeven, en de engelen zullen mijn ziel de zaligheid van het paradijs binnendragen. Maar nooit zal Jezus Christus, de Zoon van den Vader, een dienaar zijn van de Zon, of van welken afgod ook.
+
+Nederig had de oude man gesproken, zittende de handen gevouwen, den baardvlok in de hand van den keizer. Plotseling rukte de keizer ruw aan dien baard en stiet den grijsaard van zich.
+
+--- Ga! gebood hij in woede. Ga pappias, en kom mij niet meer onder de oogen! Voor de beesten? Neen, ze zouden je schrale karkas niet eens willen! Zoek een anderen dood dan den marteldood, naar wiens extaze jullie allen hunkeren... Je zal NIET in extaze sterven, pappias... Ga en sterf op je stroozak, sterf in je vuil, sterf in je domheid! Bah, wat zijn jullie Christenen dom om te zeggen, dat het Licht uit God is, terwijl àlle goden zijn uit het Licht... Ezels! Domkoppen! Vuilikken! Vuilikken, die zich niet baden! Ga, ga, pappias, je stinkt! Je pij stinkt, je baard stinkt, mijn hand stinkt naar je baard! Bah! Bah!! Libyers, breng mij een bekken met water! Flacons! Wasch mij de handen in nardos! Bah! Vuilikken! Domkoppen! Ezels! Vasthi, Livilla, sprenkelt-uit àlle kruikjes! Brandt aromaten! Broeh, wat een stank van domheid en zweet! Broeh! Broe...oeh!
+
+De keizer lag op zijn bedde te blazen en met de lippen te brieschen van komieschen afkeer. De bisschop vlùchtte weg, door Matthias, bleek, strompelend, weggeleid.
+
+--- Br...oeh! Brr...oeh!! achtervolgden hem de blaasbrieschingen van Antoninus; aan den ingang der badzaal stond het volk van schaterlach te bulderen. Ganadasa, de Indiër, die het gesprek van keizer en bisschop gehoord had, lag lang-uit over den grond te maagschokken van de pret.
+
+--- Br...oehh! Brroeh!! blaasbrieschte de Indiër den keizer na. Broeh! O... uwe Goddelijkheid, wat was dàt vermakelijk, zoo als U dien ouden heer zijn afscheid achterna gaf! De vuilik! De domkop! De ezel!! Broeh!!
+
+En Ganadasa en ook Antoninus schaterden, schaterden, schaterden. Maar bleek, sidderend en strompelend, naderde Matthias, en hij viel voor het bedde van den keizer plat neêr over het mozaïek op zijn dikken buik: hij plofte of hij uit een zoû spatten.
+
+--- Wat moet je? riep Antoninus, nog kwaad. Weg! Wèg! Ik wil geen Christen meer zien! Jullie stinken allen! Jullie zijn allen stomkoppen en ezels, die denken, dat het Licht was uit God, terwijl juist de goden zijn uit het Licht! Weg, weg met jullie allen! Weg, weg met Matthias!
+
+Ganadasa, genietende in de ongenade van zijn makker, zag glunder toe. Maar Matthias bleef liggen en kreunde:
+
+--- Uwe Eeuwigheid! Uwe Eeuwigheid!! Ik baad me iederen dag! Ik verzorg mijn baard! Ik geur me met nardos! En ik heb den pappias de waarheid gezegd! Wat?! Hij wil niet ons kruisbeeld brengen in ceremonie in den heiligen Tempel der Zon! Hij wil Christus niet stellen onder de genadige bescherming van Helegabalus?! Maar Uwe Eeuwigheid, dan wil ik Christus niet dienen meer! Dan val ik af van het geloof mijner vaders, dat, waarvoor zij in der tijd voor de beesten geworpen zijn! Dan dien ik voortaan geen anderen god dan Helegabalus, dan U alleen! Eeuwigheid! Goddelijkheid! Licht! Bron van alle goedheid en leven! Heb genade, heb genade met mij! Jaag mij niet weg! In Emessa, op bevel der Eerwaarde Mœza, heb ik mij bijna mager geloopen, ten dienste van U! Herinner u, o Eeuwige Goddelijkheid! Wend uw zonnegezicht niet vàn mij! Bestraal mij nog eens! Genade! Genade, o Helegabalus! Ik wil geen Christen meer zijn! De Zon aanbid ik, de Zon alleen!
+
+En op zijn dikken buik wringend tot dicht bij het bedde, rukte hij het kleine crucifix, dat hij droeg, zich van zijn hals, spoog er op, en smeet het ver van zich.
+
+Antoninus, in kind-blij genot om den tot wanhoop gebrachten, dikken man, schaterde en Ganadasa schaterde na. Allen lachten om den belachelijken Christen, die zich wrong in zijn ongenade, op zijn buik, over den mozaïekvloer heen. Tot Antoninus zeide:
+
+--- Dus je vindt ook, dat de pappias stonk?
+
+--- Hij stònk, hij stònk, Uwe Eeuwigheid! Broeh! Broe...eh!
+
+--- Broeh! Broèhh, de Christenen! blaasbrieschte het volk aan den ingang.
+
+--- Doorloopen! riepen de cubiculariï.
+
+--- Dus je eert Helegabalus als het Allerhoogste? dwong Antoninus.
+
+--- U eeredien ik, U aanbid ik, U, o eeuwige Helegabalus, U o goddelijke Antoninus!!
+
+--- Het is goed. Sta op. Van af heden heb je zitting in den Senaat.
+
+--- O Augustus, o Antoninus, o Zoon van Zon, Heilige Geest, o Helegabalus!
+
+--- Libyers, haal dadelijk een laticlavia, opdat Matthias zich kleede in senatorengewaad.
+
+--- O Licht! O Licht! O Helegabalus! riep Matthias uit.
+
+--- Indiër... zeide de keizer.
+
+--- Eeuwigheid?
+
+--- Wensch JIJ iets?
+
+--- Niets... Uwe Eeuwigheid, dan de vergunning naar u te staren, tot ik versmelt in uw glans!
+
+--- Staar dan.
+
+--- Dànk, Uwe Eeuwigheid.
+
+Gordus, Murissimus traden binnen, na het bad in de piscina genomen; hen volgden de baardige Aristomachos en de breedschouderige Antiochianus, tribuun en praefekt, lijfofficieren des keizers.
+
+--- Goddelijke Augustus, zeide Aristomachos. De tribuun Maximinus, de Thraciër, de reus, smeekt van uw Licht af, dat dit hem een oogenblik strale...
+
 ...
