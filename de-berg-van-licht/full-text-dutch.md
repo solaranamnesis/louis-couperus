@@ -670,4 +670,492 @@ De gongs sloegen boènghende tegen den tempel en over gehéel Emessa sprenkelden
 
 # 3\.
 
+Een stuiveling witte stof poeierde van den weg omhoog, om de haastige stappen der aanstroomende, -stroomende menigte. Langs de hooge cactushagen, de tempelparken omstekelbladerend, stroomde de Menigte van links en van rechts toe naar de zonzuilen-ingang, en met het gouden gesidder der gongslagweêrtrillingen vermengde zich, tot hoog in de lucht, het poeierende stof, opgejaagd door de duizende en duizende zich reppende sandalen, en wemelde weêr glinsterstuivelend neêr. Veelvuldige beweging van zwaaiende armen gebaarde daaruit, koortsig en enthouziast; stemmen gonsden en riepen en schreeuwden; getemperd door de stofwemeling spattevlakte de feestkleedij van de Menigte toch nog schel in den gloedgloor der zon, die uit een gouden gat aan den hemel blauw goot alle haar licht zonder voorbehoud: de witte weg scheen met kleurstof, die voortbewoog, oversmeten. Geroep van slaven, stafgebaar van lictoren, geschommel van toegegordijnde draagstoelen, snel spaak-aangewarrel van hooge carpenta, waarin men zat of recht stond, gehinnik van zebra's, gebalk van muilen aan basternae gespannen, veroorzaakte immense beweging en duizend-geluidige ruzie over den weg, tusschen de twee stroomen der altijd en altijd maar voortreppende kleur-gespatvlakte voetgangers, en zoó dicht stuivelde het stof op en poeierde weêr neêr, dat overal was een verblinding van oogen, een geproest en geschraap van kelen, een gefnies van neusgaten, een gespuw uit naar alle zijden --- en dàn een gescheld om die kwalsters, een vuistend gebons op elkaár, een gevloek en getwist, maar dadelijk medegeslierd door de achterop aankomende massa's. Aanrazende met een zee van geluid, goud overdonderrold door de boènghende, boènghende slagen der gongs, stormvloeide met een stroombocht zoo links als rechts de massa door de zonzuilenpoort in de parken.
+
+De breede weg naar den tempel was aldaar afgezet door het Stedelijk Cohort, onder bevel van den Stedelijken Tribuun; langs de voorportiek en den gesloten hoofdingang, straks van den Optocht bewaard, rijde zich de kavallerie der loricati, verguld geschubkurasd en verguld overhelmd, speerlans gesteund in koker op knie, en tegen de slankte der hoog in de hoogte stierkapiteelende zuilen trokken, op hun goudschabrak-overdekte hengsten, zij een breed machtige streep van gelijkmatigen schubbigen glans, fel schitterend tegen het zondoorstoofde bazalt.
+
+Maar de zijpoorten waren alle wijd open, en trots het militair vertoon van het Cohort der Kavallerie en het politie-toezicht van het Stedelijk Cohort, stroomde de Menigte aan weêrszijden de apadaña binnen met haar zwellenden, zwellenden vloed. Als met een snellen rivierbocht door sluizen boog zij van links en van rechts binnen de zonzuilenpoort, maalstroomde over het tempelplein, golfde daar tusschen de aaneengesloten hastati, dragers van lansen, òp tegen de Kavallerie, en dan draaide zij uit naar de zijpoorten, met een ronden kolk van kleuren, koppen en zwaaiende handen.
+
+Zij was gekomen van overal.
+
+Zij kwam van Damascus, van Tyr; van Sidon, van Heliopolis, van Palmyra; zij kwam zelfs van Jeruzalem. Zij had dien nacht in Emessa alle herbergen niet alleen overvuld, maar zij had in den starrennacht van verwachting zich gelegerd waar maar een stoep, een trede, een steen was te vinden, zoo zij niet geslapen had in het maandauwige gras. En toen de eerste gongslagen waren geboènghd en haar op naar den tempel van Helegabalus riepen, was zij beginnen te stroomen, samen te stroomen over den witstoffigen weg, in koortsig voorgenot, opgewondenheid dol, zoo als zij ging, de Menigte, naar ieder spektakel, naar ieder spel, naar iedere vertooning en optocht, maar doller, opgewondener, koortsiger om vrome vereering van den God van de Zon: en om zijn Hoogepriester en Incarnatie, den jongen Bassianus, dànsen te zien, rondom den Zwarten Steen. De roep van zijn goddelijke gratie had zich na iedere driemaandlijksche Offerande verspreid en de Dag van den Grooten Dienst en den Dans was geworden tot een zonnefeest van jubelende opwinding, voor welke zelfs de groote feestdagen in de tempels van Heliopolis verbleekten en veronbelangrijkten. Neen, naar Emessa stroomden Syriërs, Foeniciërs en Joden --- om het heilige kind, den kleinzoon van de fabelschatrijke Mœza, dansen te zien. Wie hem gezien had, ging weêr; wie hem niet had gezien, hoorde zoo veel van dien andere, dat hij ging, dat hij, was hij arm, de laatste dagen niet at, om enkele drachmen over te leggen als reisgeld. Maar gaan naar Emessa den Dag van den Dans ging ieder, die niet lam, blind of ziek was. Aanzienlijken kwamen met kemelen en stoeten van slaven; ouden van dagen kwamen op krukken en moeders sleepten haar kinderen meê; bedelaars drongen bij honderden de menigte door en telkens sloegen gauwdieven hun slag.
+
+De Menigte stroomde binnen de apadaña, en dadelijk suisden stille de bruischende stemmen, of zij met kalmte overgoten werden, maar ook de oogen, verblind door zon, stof en kleur en beweging, baadden dadelijk weldadig in schaduw en over de bezweette leden heen liep zelfs even een rilling van kilte. Veliten, lichtgewapend, zetten een breed pad af dwars door het midden der apadaña, door tusschen de zuilen hun lange speren horizontaal te houden op de hoogte der borst, van den vrij gehouden hoofdingang tot de trappen toe des Allerheiligste. Zware gordijnen, die hingen als met bronzen plooien, sloten dit af voor de oogen der Menigte, en zij had nog niet anders te doen, dan zich zoo spoedig mogelijk, dringende, dringende, te stellen vlàk bij het heiligdom, elkander misgunnende een duim verdere en dichtere en betere plaats. Dringende, dringende in elkanders ruggen, stond zij als opgepakt en kon zich niet meer verroeren, een mozaïek gelijk geworden van star starende koppen vòl geduld om te wachten nog ùren lang, voor de Optocht binnen zoû komen en de bronszware gordijnen zouden openwijken. Uit dat mozaïek geduldige koppen, als uit een hoogeren vloer slankten de schachten omhoog en te vele waren de zuilen, vonden zij, die gedrukt tegen een schacht, gevaar liepen verpletterd te worden, of, èrger, van den Dans niets te zien... Slankten de schachten omhoog en boven, in een door ènkelen zonstraal lichtgoud gepoeierde wemeling, staroogden over de Menigte neêr de dubbelstieren der kapiteelen, de gedeelde lijven in elkander versteend, voorpooten geknield in het ijle en torsende op steenen kussens de cederen balken der zoldering, fijn oversponnen met goudachtig Perziesch blad-ornament, dat voor de gewende, in schemer gebaadde blikken, duidelijker begon te glansen.
+
+Onophoudelijk drong dichter de Menigte. En al viel hier en daar een vrouw flauw, werd, nog meêlijdende, buiten gebracht, of raakte een kind, schreeuwende, onder den voet. Maar een bende van vijf, zes gladiatoren was binnen gedrongen en zij openden zich met de breedte van hunne schouders, opgezette borsten en gespannen spierarmen een brutalen weg, om de zuilen heen, door de mozaïkmassa heen, die schold, van den voet werd gestuwd, op elkaâr werd geduwd, hijgende in elkanders buiken en ruggen en knieën. De gladiatoren stoorden zich niet; torenend en massief, bonsde regelmatig hun bende vooruit en de voorste, een mirmillo en Germaan, riep luid tot zijn makkers:
+
+--- Vooruit maar, vooruit maar, nòg dichter bij!
+
+De anderen volgden den Germaan, brutaal lachende, maar nog meér werd de Menigte gepakt en geprest toen een troep Romeinsche legionariï binnen hoste, en er ontstond een gedrang: vrou-wen schreeuwden en gilden, messen werden getrokken. Een walm van knoflookadem en uitwasemend zweet dwalmde al op, vermengd met de bitterheid van stof van de straten, de sterke kosmetieken der vrouwen, terwijl van achter de bronszware gordijnen al aannevelde een aroom der ginds bereide lampen en geurvaten. Achter de gladiatorenbende hield zich een Indiër strak geparst tegen hen aan; hij was naakt, met een lap om de lendenen; even kopergebruind, zijn hoofd in witten tulband omwonden; mager en slank bevallig hield hij de gladiatoren bij, liet die voor hèm den weg banen en ging met hen meê en stuwde vooruit achter hen aan en won zoo steeds een betere plaats. Nu, glimlachend zacht, had hij zich listiglijk weten te duwen tot midden in hun spiervleezige groep en stond er als in een bescherming en veiligheid: zijn lippen glimlachten, zijn oogen glimlachten, terwijl hij staarde op het bronszware gordijn.
+
+--- Zeg, vriend, wat moet dat? vroeg de Germaan.
+
+--- Jullie zijn sterk, ik niet, zei de Indiër met zachtvleierig vreemden tongval in zijn zangerig Syriesch; de zwakke zoekt steun bij den sterke. Ik ben van uit het park achter je aan gekomen. Hier hebben wij een vrij mooie plaats om den Dans van Zijne Heiligheid aan te zien.
+
+Hij sprak formeel en beleefd, met zachte stem, glimlachte steeds, rustig veilig in de groep der gladiatoren, waarin hij zich dichter nestelde. Hij had den rug van den Germaan tegen zijn borst; links en rechts presten hem twee zware Galliërs, achter hem drongen twee retiariï en een belluarius, maar hij liet zich pressen en dringen, nauw gevangen omprangd door de monsterlichamen, van spiermassa's zwellend tegen hem aan, de ruwe beestachtige koppen kijkende over hem heen, omdat hij kleiner was.
+
+--- Is het de eerste keer, dat je Bassianus zal zien dansen? vroeg de Indiër aan den mirmillo.
+
+--- De eerste keer, antwoordde, kort, de Germaan.
+
+--- Ik heb je gezien, den laatsten keer in de Spelen, glimlachte vleierig de Indiër. Je bent Gualterius; nu, je bent genoeg bekend. Ik heb je bewonderd. Je hebt je retiarius neêrgelegd met een kunst als geen ander bezit. Je bent niet alleen heel sterk, maar je kent ook je vak, als niet éen. Dàt was kunst, hoor, zoo als jij hem legde.
+
+De mirmillo brulde op, breed, van pleizier.
+
+--- Ja, ja, het was goed! blufte hij, welbewust.
+
+--- En zien jullie den goddelijken Bassianus ook voor het eerst? vroeg de Indiër heel beleefd, met een ronden blik tot de anderen.
+
+--- Ja, ja! beaâmden zij.
+
+--- Wij hebben hem wel eens zien offeren...
+
+--- Maar nooit nog zien dansen...
+
+--- Ja, van daag zien wij voor het eerst hem dànsen.
+
+--- Nu, zei de Indiër; dàn zal je wat te kijken hebben!
+
+--- Zag jij hem dan wel eens dansen?
+
+--- Wel vijf maal. Het is iets, dat je noóit hebt aanschouwd en noóit na hem meer aanschouwen zal. Het is een genot voor je oogen en voor je hart. Ik ben Ganadasa, de gymnosofist, ik kom van den Ganges, en ik dacht veél te hebben gezien, maar ik had niets gezien voor ik den heiligen Bassianus zag dansen. Goden, wat is dat mooi! Zie je, ik ben gymnosofist, ik heb gestaard op mijn navel, om mij van de wereld af te trekken en op te gaan in de Onzienlijke Dingen, maar sedert ik Bassianus gezien heb, ben ik niet meer gymnosofist --- trouwens, van staren kan je niet eten --- en sedert ik Bassianus zag dansen, ben ik aanbidder van de Zon en aanbidder van Bassianus! Goden, wat is dát heerlijk, die Dans... Je oogen worden geboeid, maar dàn wordt je ziel gevangen. Je kàn het niet weêrstaan. Het is een betoovering. Het is een wonder.
+
+--- Ja, ja, zei de mirmillo; het is een wonder, dat zeggen allen.
+
+--- Dring nòg verder op, ried zacht vleiend de Indiër, en uit zijn lendedoek gleed hij in den poot van Gualterius een halve aureus.
+
+De gladiatoren bonsden naar voren; zij scheidden de nijdige menigte in twee; nu naderden zij tot vlak bij het heiligdom, aàn tegen de wacht der veliten.
+
+--- Hier zie je àlles!! zei de Indiër Ganadasa. Hier zie je de estrade van den Proconsul, van de Prefekten, van de drie Moeders! Dàt is een goede plaats! Laten we ons hier niet van wegjagen, hoor!
+
+--- Daàr zullen we wel op passen! bralden de gladiatoren.
+
+--- Zeg vriend, zei de eene Galliër, en pakte den Indiër rondom zijn middel, zoekend in den plooi van zijn lendedoek. Heb je voor mij ook niet een aureus?
+
+--- Zeker! glimlachte de Indiër. Kijk maar eens hier...
+
+--- En voor mij? En voor mij? drongen de anderen om Ganadasa, tot hij gekneed was tusschen de massa van dij en van biceps.
+
+--- Zeker! glimlachte hij onveranderlijk. Kijk maar eens hier! En kijk maar eens hier!
+
+En hij drukte hun allen in de zware knuisten goudstukken, die hij listiglijk tooverde, zij wisten niet van waar, want zijn lendedoek was heel los en heel smal.
+
+--- Je bent een rijkaard voor een filozoof van den Ganges! zei de mirmillo Gualterius.
+
+--- Neen, IK ben niet rijk! lispelde heel zacht Ganadasa; maar ik geef gaarne van wat ik gekregen heb aan brave makkers, die sterk zijn, ook omdat ik aardsche schatten niet acht en àlleen om ònzienlijke schatten geef, want ik leef van niets, heb niets noodig... Maar wiè rijk is, dat is de Eerwaarde Mœza, de grootmoeder van Bassianus, en zij is het, die mij, arme, een aalmoes in goùd heeft geschonken, toen ze mij voorbij ging op den steen, waar ik peinsde... En van dàt goud, vrienden, geef ik aan jullie...: zie, ik heb je àlles gegeven, ik heb niets meer in mijn lendedoek --- en hij wimpelde de losgeslipte lap boven zijn hoofd --- ...Ja, wie rijk is, dat is Mœza, diè is een eerwaardige en heel rijke vrouw, en zoo mild, zoo mild: zij strooit met het geld: de djinns maken het haar en zij heeft schatten, zoo veel als ze wil, en als zij keizerin was, of liever nog, als onze heerlijke Bassianus eens keizer was, hij, die haar erfgenaam is en dien zeker de djinns ook bedienen, dàn zoû het geld eerst vloeien en zonder ophouden, onder alle trouwe makkers en gladiatoren...
+
+--- Als Bassianus keizer werd...?? vroegen de gladiatoren, dringend hun spiermassa's op Ganadasa...
+
+--- Je zal hem straks zien dànsen! riep de Indiër in een verrukking, die, al diende zij hem voor zijn oogmerk, een waarheid was in zijn ziel. O, de lieveling, je zal hem zien dansen straks! Hij is een god en een opperpriester, maar hij is ook zoo een kind, zoo een lieveling! Nooit heb je zoo iets gezien als die Dans! Nooit heb je gezien zoo een Danser! Je oogen zwelgen in iedere beweging van zijn goddelijk lichaam blank en het water loopt je je lippen over; je geest rukt hij uit je wèg, toè naar zijn heerlijkheid, en terwijl hij danst, geeft hij zich aan allen, die hem zien, zoo als de Zon zelve zich geeft, en straalt op al wie zijn in den gloed van zijn straling! O je zal den Dans zien en den Danser! Niets is heerlijker; ik heb niets meer noodig gedurende driè maanden lang, als ik Bassianus heb dansen gezien. Ik eet van hem, ik drink van hem, ik leef van hem, ik heb het warm van hem, ik denk doòr hem, ik droom òp hem, ik aanbìd hem en ik heb hem lief!! Je zal hem zien, je zal hem zien, en al zullen jullie, sterke mannen, niet genoeg van hem eten en drinken, je zal toch op hem watertanden en hem aanbidden en liefhebben, want zijn aanblik, als hij danst, is heerlijker dan welk spel of spektakel ook, en dronken en dol zullen jullie worden, wat voor kerels jullie anders ook zijn... O, als Bassianus eens keizer werd!
+
+--- Maar waarom zoû die keizer worden? vroeg de belluarius met dom open mond in breed smoel. Macrinus is keizer, Macrinus...
+
+--- Ja, fluisterde de Indiër Ganadasa. Macrinus is keizer, Macrinus, de moordenaar van Antoninus Caracalla, die iedereen een mantel gaf... de moordenaar van Bassianus' vader.
+
+--- Was Caracalla Bassianus' vader? vroeg de retiarius.
+
+--- Was Avitus niet Bassianus' vader? viel Gualterius in.
+
+--- Was Caracalla niet Bassianus' vader? verontwaardigde Ganadasa zich. Heeft de verhevene Semiamira niet...
+
+--- Sœmis?
+
+--- Ja, zoo wordt ze genoemd.
+
+--- De moeder van Bassianus...
+
+Breed grinnikten de gladiatoren.
+
+--- ...niet met hare moeder Mœza, ging de Indiër heftig voort; die zuster is van keizerin Julia Domna, vertoefd op het Palatium, gedurende Caracalla's regeering en weet niet ieder, dat zij zijn minnares is geweest, en Bassianus zijn eigen zoon?
+
+--- Sœmis komt in het bordeel van Matthias, vermomd, zei de mirmillo Gualterius; en ze hebben mij gezegd, eergisteren nacht...
+
+--- Wat, wàt hebben ze je gezegd, Gualterius...?
+
+De gladiator schaterbulkte breed.
+
+--- Dat ik haar gehàd heb, terwijl ik een hoer dacht te hebben...
+
+Ganadasa, verschrikt, wilde hem zwijgen doen, maar met een stormend gehos, als namen zij een overwonnen stad in, drong binnen een bende legionariï door de gillende, schreeuwende Menigte, die stond kop aan kop, schouder aan schouder: soldaten der Foenicische, Syrische legioenen en Klein-Aziatische auxilia: de eersten allen Romeinen, de anderen uit Armenië, Isaurië, Lycië, Frygië, en Pizidië; Paflagoniërs, Bythiniërs, Cappadociërs, --- hen allen, die de Romeinen „barbaren“ noemden, zoo goed als Germanen, Galliërs en Sarmaten; een naam, die hen beleedigde, omdat zij zich zuidelijk voelden en zeer verwant aan de oudheid van Hellas... Onweêrstaanbaar door hun solidairen aandrang en bluf, kliefden zij de Menigte in tweeën, moesten wel vaak om de zuilen gaan, vonden elkander terug, pakten elkaâr bij den arm, dronken van opwinding, zweetend verhit van de sneeuwgekoelde dranken, die zij in de taveernen aan den weg overmatig hadden gezwolgen, en zoodra de Indiër Ganadasa hen met brute kracht zoo zag stormen, mannen parsende op elkaâr, vrouwen trappend met hun soldateske brutaalheid, maakte hij een schril schreeuwende opschudding tusschen de gladiatoren, gebood hen bijna bevelend hun goede plaatsen vooraan te bewaren, maar hijzelve, als in zenuwige onbesuisdheid, verloor de zijne, toen de soldaten naderden en integendeel liet hij zich wegsleepen, met de massa, naar achteren, ter zij, naar voren, naar achteren weêr, vloekende, schreeuwende, scheldende, spuwende, tot hij plots te midden der bende auxilia was, en kalm werd met zijn zachten glimlach en beleefde manieren en vrouwachtige vleierij. En dadelijk was hij in druk gesprek met een decanus --- onderofficier der Paflagoniërs --- niet zonder blik te hebben gewisseld met een dikken man, dien hij onmerkbaar nader wenkte, van wien het bekend was, dat hij, Christen, in zijn kroeg, bordeel tegelijk, de orgieën der Christe-nen toeliet met kindermoord, niet openlijk als voor Moloch te Heliopolis, maar in het geheim, met wellustige rite. En de Christen, Matthias, wist op zijn wenk en blik Ganadasa te naderen, en beiden wenkten zij een vetkrulligen Jood, bekend om zijn geldtafel en wisselbank...
+
+--- De Romeinsche cohorten zijn bijna voltallig! fluisterde de dikke Matthias.
+
+--- Daár zijn bezig de Parth Xybaran, en de Egyptenaar, de kleine Orus! murmelde Ganadasa; hoû die in de gaten en werk met hen...
+
+--- Ja, ik ken ze! antwoordde de vetlokkige Jood. Kèn ik ze niet? Ik kèn ze... Gisteren al heb ik met hen kennis gemaakt bij onzen vriend Matthias, en er waren veél van de auxilia, en Matthias schonk zijn Falerner: nou, dàt doet hij ook niet iederen dag!
+
+--- De auxilia zijn voorbereid, zei Matthias; maar IK vrees nog voor de Romeinen...
+
+--- Ik niet! fluisterde Ganadasa. Ik heb gisteren vijf honderd duizend sestertiën verdeeld...
+
+--- Ja, geef ze geld, geef ze geld! schreeuwde de Jood.
+
+--- Stt! siste Ganadasa. Eén onvoorzichtig woord en de zaak is bedorven en het Oude Wijf kruisigt ons allen. Laat de soldaten vooral niet merken, dat wij ze omkoopen willen... Laat het alles hun vrije wil schijnen... àls het gebeurt, als het van morgen gebeurt...
+
+--- Gisteren het geld, en van daag de Dans, zei Matthias; dat maakt ze gèk!
+
+--- Danst die wel zoo mooi als David voor de Ark danste? vroeg de Jood twijfelachtig.
+
+--- Als David? verontwaardigde de Indiër. Was David een god? Was David ooit Helegabalus? Danst Bassianus niet mooier dan David? Heb jij David ooit dansen gezien? Neen, niet waar; David danste voor jou tijd? En heb ik Bassianus zien dansen? Kàn ik dus oordeelen, ja of niet??
+
+--- Nou, hoû je kalm, hoû je kalm! kalmeerde de Jood.
+
+De hulpsoldaten luisterden toe.
+
+--- Hij zegt, riep Ganadasa; dat Bassianus niet mooier kan dansen dan David voor de Ark danste! Heiligschennis, hèiligschennis!! Bassianus is het Wonder der Zon! Ik? Ik eet van hem, ik drink van hem, ik denk door hem, ik droom òp hem!!!
+
+Hij kwijlde van voor-extaze. Zijne oogen puilden, hij hijgde. Maar tegelijkertijd als bij toeval, tooverde hij, door langs zijn bloote leden te strijken, goudstukken, en deelde ze uit. De soldatenknuisten gretigden toe en zij poogden hem te rollen; hunne vingers streelden hem over de leden ook, maar wisten niet de goudstukken te vinden.
+
+--- Ja! zei Ganadasa; als de kleinzoon van Mœza eens keizer werd, dan zoû het eeuwig zijn spel en feest, en misschien wel iederen dag Dans om den Steen!!
+
+Buiten boènghden de razende gongs, alle tegelijk en heel snel; een spatteren van klanken daverde over den tempel en om den tempel en als van een zee werd het bruischen der Menigte: plòts golfde zij met een stormslag heen en weêr, heen en weêr, of aardbeving den tempelgrond schudde, kreten galmden, schreeuwen overgìlde, handen hieven zich, vingers wrongen hysteriesch uit boven de dicht geplakte koppenmassa, hongerende van hun verlangen; wie viel, werd niet meer geacht, werd vertrapt; een kind was onder den voet gekomen, en hoe de moeder ook gilde, vertrapt werd het tot moes, tot bloed en wat krakende beendertjes, dadelijk weggevaagd door de schuifelgolvende massa. Niemand achtte meer, zelfs de moeder niet: de immense poorten van den Hoofdingang sloegen metaalklaterende open, zongen koperschel in hare hengsels, en te-gelijkertijd schoven de bronszware gordijnen des Allerheiligste plechtstatiglijk uit een en werden de in schaduw gebaade oogen der Menigte verbijsterd, verblind zoowel hièr als daar, door de zonnefelte van het lucht-opene heiligdom, waarin oprees de Zwarte Steen, als door den brutalen gloed, die binnengoot, door de poorten. Een hymne van uit het heiligdom heerlijkte òp, falsetzang van priesters en fluitgepijp van speelsters, onderbroken door cymbelgekletter, pogende òp te klateren tegen de stervende gongslagen van buiten, en eene tweede hymne antwoordde als met antistrofe van de poorten af, waar boven-uit de verschrikte paarden der kavallerie tot hoorbaar in den tempel toe hinnikten. Eén razende golf, deinde de Menigte naar de poorten toe, aan tegen de wacht der veliten, die dreigen moesten met speerpunt en dolk zelfs; eén razende golf, om den Optocht te zien binnenvloeien, van uit den brutalen poortengloed in de apadaña-schemering, toe naar de zonnefelte des heiligdoms.
+
+Eén razende golf --- en hoe het kwam, was onnaspeurbaar, maar de groep der gladiatoren, aangewassen met alle makkers van de arena, verbroederde samen met de Romeinsche legionariï, waartusschen de Parth Xybaran en den kleinen Egyptenaar Orus te onderscheiden waren; de Klein-Aziaten joligden blij om den Christen-kroeghouder, die hen voor dien avond allen een meid beloofde voor niets of, zoo ze verkozen, een jongen van dertien, terwijl de vetlokkige Jood ze zoo vele sestertiën voorschoot als ze maar wilden, en Ganadasa hun amuletten en gemmen schonk, die hij tot hun verbazing tooverde uit zijne schrale magerte met niets dan een streeling over dij of borst, want zijn tulband had hij afgenomen om te toonen, dat daar de juweelen niet scholen. Eén razende golf --- en heel die menschelijkheid van sterke, ruwe mannen, zonder het te voelen, beheerscht door Indiër, Parth, Egyptenaar, Jood en Christen, deinde tot woede der Menigte, in wier vrouwen hun vuisten graaiden, toè naar de poorten, waar bij schal en terugschal der hymnen de Optocht plots binnen scheen.
+
+Vooruit het Praetoriaansche Cohort, vier aan vier, door het middenpad, dat vrij hielden de horizontaal tegen de borst aangehouden lansen van de veliten; centurionen, den wingerdstaf ter hand, rondom den Praefectus-Praetorio... Hem volgden dadelijk de Proconsul, en de Praefekt van de Stad, omstuwd door roêbundel-en-bijlen torsende lictoren, en na deze militaire en civiele macht, scharlaakten binnen als vlammen de ommantelde offerpriesters, gevolgd door de Priesters-der-Zon, voornaam jeugdig, laatdunkend heupwiegend, zelfbewust androgyniesch, minachtend het plebs, dat was òf man òf vrouw...
+
+--- Zie! zei de Indiër; hij had op nieuw den mirmillo gevonden en omgreep diens monsterarm; zie, daar zijn de heilige priesters!
+
+Het bruischen der Menigte verruischte, overschetterd en -schaterd door de twee schelle hymnen, die met hysterische galmrazernijen vroegen en antwoordden, smachtten en beloofden van het Allerheiligste over en weêr naar de poorten: mystieke huiver overrilde de Menigte. In het heiligdom streefde de Zwarte Steen, immense fallus van git, uit hooge verhevenheid òp naar de lucht, en de Menigte zag van den Steen naar den Optocht, van den Optocht weêr naar den Steen. De stoet van de priesters stroomde, en hun laatdunkendheid was zoo verpletterend, niettegenstaande men hen veil wist zoo goed als de tempeldeernen, voor wie maar hun prijs betalen kon, dat de Menigte, geperst en geprangd in elkaâr, ontzette, in de voorgevoelde vervoering van goddelijk mysterie, dat voorbij ging --- dat naderde vooral. Scheller en hooger stegen de hymnen en zij sloegen terug tegen de altijd zwijgende en neêrblikkende kalmte der stieren boven, in het ijle geknield, de cederen zoldering schragend.
+
+--- Zie! zei Ganadasa, en hij liet den mirmillo niet meer los, klampte zich aan zijn biceps, als zocht hij bescherming aan zijn arm voor een extaze, die hem misschien weldra te machtig zoû worden en opvoeren zoû ver van de aarde. Zie, dat is de Oppermagiër, Hydaspes!
+
+Huiverend stemgeruisch suizelde, eerbiediglijk, op, toen de Oppermagiër binnentrad, in zijn wit-en-gouden sarapis, omringd door de andere Magiërs, bewaarders der occulte wetenschappen, allen met de transe-oogen starende voor zich uit. De Menigte wist, dat zij in den Toren de mysteriën pleegden om de voeten der goden te naderen en een angstige huiver doorvoer velen, die geloofden, dat zij sterven zouden, zoo de oogen van Hydaspes langer dan een seconde op hen zouden blijven gevestigd, maar hij staarde voor zich uit, terwijl hij ging, de andere Magiërs starend als hij...
+
+--- Zie, daar zijn de drie Moeders! riep opgewondener Ganadasa. De eerste is Julia Mammea, de moeder van den kleinen Alexianus; die nu haar volgt is de verhevene Julia Semiamira...
+
+--- Waaràchtig!! bulkte Gualterius, van verbazing geslagen. Sœmis!!
+
+--- Semiamira! verbeterde Ganadasa. Die in den gouden chlamys met den saffierdiadeem!
+
+--- Denk je, dat ik haar niet herken??
+
+--- En zie, zie daar komt de Eerwaarde Julia Mœza; haar chlamys wit staat stijf van parelen; men zegt, dat zij parelen éét!! O, het machtige Oude Wijf!
+
+En knijpend in den arm van den mirmillo bleef hij wijzen naar de drie prinsessen, die de eene kwam na de andere, loopende te midden van haar zwerm van vrouwen, waardigheidsbekleederen, eunuchen.
+
+--- Zie! Zie!! riep Ganadasa. Daar dansen de deernen aan!
+
+De Menigte golfde, om beter te zien, drong, drong dichter, verpletterend. De danseressen wirrelden aan, als gedragen door de razernij van hymne en tegenhymne; terwijl zij dansten speelden de fluit zij of sloegen zij, op rythme en maat, de cymbels en trommen en zij knepen de sistra, en zij waren geheel naakt, maar gekapt en geschoeid en geschilderd.
+
+--- Zie! Zie!!! schreeuwde Ganadasa. Daar komen de Zonnekinderen!
+
+Een wolk van wierook dampte. Een zwerm van thuriferariï zwaaide vaten en lampen, die starrelden aan uit het buitenzonlicht; het was als een gele brand, die binnen wolkte. De Zonnekinderen, heel jeugdige Priesters-der-Zon, kinderen van even tien, twaalf, gesamaard en gemitraad, waren nauwlijks te zien in den walm, die toch zich verijlde, maar Ganadasa wees nog den kleinen Alexianus: met de anderen liep hij achteruit, achteruit, en gooide bloemen uit met handenvol... Maar vlak bij den hoofdingang, in den gelen brand, schreeuwde het volk, pakte, perste, drong hijgende op en over elkaâr, gilde, galmde, hysteriesch.
+
+--- Zie!! Ziè dan toch!!! krijschte schel Ganadasa en hij slaakte kreet op kreet. Gualterius! Zie, Zie!! Daar komt... daar komt Bassiànus!!!!
+
+De mirmillo, van spanning, was razend. Hij poogde zich los te rukken, maar de Indiër was als vast aan hem gegroeid, en hij schudde te vergeefs, te vergeefs. Overal, in de immense apadaña, raakten vrouwen, kinderen onder den voet; vertrapt en vermoord werd om dichter bij den ingang te komen. De slachtofferen schreeuwden, bloed stroomde, vleesch, haren kleefden aan vingers en kleêren, die scheurden tot flarden: beenderen, onder de voeten, kraakten... Bassianus was binnen gekomen, en het volk gilde, gilde, gìlde... Hij schreed heel langzaam nader. Ook hij staroogde voor zich uit, terwijl hij liep, niet menschelijk meer maar vergoddelijkt.
+
+Zijn idole-gelaat, heerlijk als van een Zoon van de Zon, heerlijk als van de Zon zelve, trok strak in het schitterend email en de krullen, op Assyrische wijze gekruld, hingen niet blond meer, maar stijfgoud uit zijn heel hooge mitra, overvonkeld van groote karbonkelen. In zijn wijdmouwig opperpriestergewaad schreed hij voort, pas voor pas tusschen de wacht der veliten, die bijna bezweken onder den druk van de Menigte. Meer dan die soldaten hield haar tegen de huiver van Bassianus' goddelijkheid. Vijf priesters beurden den rand van den mantel, zoo dat even zijne schrijding verzichtbaarde. Andere priesters steunden de armen hem. Zoo bewoog hij stijf voort, automatiesch, en zijn mantel, niet plooibaar, van gemmen stijf, daalde van zijne schouders als een klok in de handen der bijna kruipende dienpriesters. De wierooknevel maakte rondom hem den weêrglans van een blauw paradijs; de geurvaten zwaaiden en de lampen starrelden, en hij prachtstraalde uit die verheerlijking te voorschijn mystiek majesteitelijk, en zóó jong, dat hij bleef een kindgod. Struisveêrschermen wuifden over zijn hoofd heen; priesters volgden, veliten sloten den optocht, maar niemand die achtte; alle oogen volgden de voortschrijdende heiligheid van Bassianus, terwijl hij uit de hymne der poorten toe trad op die andere, die van het heiligdom...
+
+Een verademing gaf zich lucht. De stoet had het heiligdom bereikt. Dat was zon-opene vierkante ruimte, gloeihaard van zonneglans, ginds zichtbaar van uit den schemer der menschen-volle apadaña. Op verhevenheid van marmer en jaspis verhief zich de Zwarte Steen, om wiens voetstuk ommegang cirkelde, die met trappen neêrtrad tot wijdere ommegangen, waarop drie altaren rezen. Ter zijde, waren estrades, door vela voor de zon overhuifd; daar zetten zich met hunne gevolgen de Proconsul, de beide Praefekten, de Moeders met hare vrouwen, en alle Aanzienlijken, die in den Optocht waren medegeschoven. Alle de lampen schitterbleekten in den gloed van de zon, maar alle gezwaaide geurvaten walmden wierook, blauw en nevelvergrauwende, hooger en hooger op, en in weêrwalm van paradiziale verwolking steeg Bassianus, opgebracht door de priesters, die hem aan mouwen en mantelrand dienden. De schetterende hymne en tegenhymne verstomden, en alleen melodie van fluitspeelsters op den laagsten ommegang scheen te smeeken met zachtere deêmoedigheid, klagende, en vòl verlangen verliefd. Bassianus, den gem-gemantelden rug naar de Menigte, maar duidelijk zichtbaar, boog voorover het hoofd aan den voet van den Steen, en de priesters namen hem den mitra af, en zijn goud omkrulde kruin verklaarde. Hij, staande, legde zijn voorhoofd neêr tegen den voet van den Steen, die hoog kegelde opwaarts, git en glimpend zon-overvloeid, als droop er zwart water af. De wierookzwaaiers bengelden de vaten. Bassianus kuste den Kegelvoet, en lichtelijk sloeg hij drie malen het voorhoofd tegen den Monolieth. Ademloos volgden de menigte zijne bewegingen, wachtende op den Dans. Maar hij bewoog zich nog niet: in aanbidding veronbewegelijkte hij en zijn mantel daalde in de handen der priesters zonder éen trilling of vouw. De muziek zwol; de trommelen rommelden, de cymbalen kletterden, en de sistra snerpten. Bassianus had zich ommegewend en het volk aanzag zijn godegelaat. Het staarde, star, voor zich uit. De mitra werd hem weêr opgezet, en zij zagen hem eene beweging met handen maken: klein, blank en bejuweeld verhieven zij zich uit de mouwen en bleven gestrekt. Onbewegelijk stond hij, minuten lang, terwijl de offerdieren werden voorgebracht, ombloemd en omgordeld; rammen en tal van schapen, die, blèrende door de muziek heen, een blanke, kudde trippelden over den ommegang. Reeds werden de dieren gegrepen door offerdienaren en voorgelegd en vastgehouden op de twee zij-altaren: als roode vlammen naderden offerpriesters, het offermes in de hand; te-gelijkertijd mikten zij de snede; òpen sprongen de buiken, krijschend geblèr werd door snerpen en klateren van muziekinstrument overstemd; het bloed vloeide in breede geul, liep weg; in korven ombloemd, werden de ingewanden, die uitslipten, zorgvuldiglijk opgevangen. Weg werden de lillende kadavers gedaan, verdwenen onder in het Heiligdom; andere slachtofferen werden voorgehouden en gilden en stierven; het bloed gudsde; ingewand lilsidderde weg in de korven. Onbewegelijk stond Bassianus. Maar een mantelkleed van roode zijde, gelijk aan dat van de offerpriesters, en stijf van roode gemmen en steenen, werd hem ruim over zijn gouden klokmantel omgeslagen; zijn gouden mouwen stak hij door roode mouwen; zijn gouden mitra werd hem genomen; een scharlaken mitra hem opgezet; dat al met ritueel van rythmiesch gebaar, dat zich regelde naar trom- en naar cymbelslag. En door de offerpriesters, die hem nu dienden, geleid naar omlaag, werd hij ten middenaltare opgebracht; offerdienaren hielden voor den vlekloosten ram; offermes werd hem geboden, en hij gaf de snede, zonder aarzeling. Het bloed gudsde in diepe geul; na den ram offerde hij schapen, drie, de vlekkelooste der kudde. In ombloemde korven het ingewand; rinkelend en kletterend tamboerijnen en sistra; walmend de wierook der vaten. Andere offers vielen ter zij-altaren; de Menigte, die ze eerst had geteld, telde niet meer, zag toe, hijgde toe, in verwachting. Want te-gemoet door de eerste dienpriesters getreden, die hem uit de handen der offerpriesters ontvingen, betrad Bassianus ten tweeden male den hoogsten ommegang, leunde ten tweeden male het voorhoofd aan den steenvoet en roerloos bleef hij, terwijl de priesters hem offermantel en -mitra afnamen. In de stroomende zon stond hij te stralen, zijn gouden mantel, zijn gouden krullen straalden als ware hijzelve een zon; de danseressen begonnen te wirrelen over den laagsten ommegang heen, hoog heffend rinkelbommen en cymbels. De fluitmelodie klaagde met een galm van de aarde, gillende om de liefde des zongods.
+
+Maar Bassianus wendde zich om. De adem der Menigte verhoorbaarde, tot zucht van verlichting, omdat het kwam, omdat het komen zoû. Het kwam, het zoû komen... Een kleinere mitra, de derde, robijn-overspat, werd Bassianus opgezet, en heel langzaam, als in de revelatie van een tabernakel, openden de Magiërs den mantel hem, de mouwen gleden over zijne armen af, en het zeer stijve gewaad viel naar achteren, in de eerbiedige handen der priesters.
+
+Zucht van de Menigte zwol tot een hijgenden roep van voldoening. Dat was éen roep, gesmoord om de heiligheid van dit oogenblik, maar vol innige voldoening, omdat het begon. De Hoogepriester stond naakt. Hij stond naakt in heel zijn heilige goddelijkheid; hij stond zilverwit naakt; oneigenlijk, in felle zon, straalde zijn naaktheid tegen het als van zwart water vloeiende git des Steens; en goud waren zijn haren, goud was zijn mitra, goud was zijn halssnoer, goud was de gordel, die hem langs de liezen liep en hem de illuzie gaf van de sekseloosheid, daar de robijnen schulp hem het lid ving en veronzichtbaarde; goud waren de linten van zijn hoog tot onder de knie strengelend schoeisel. Zoo stond hij zonomstraald, zilvernaakt, goudgesierd, en hij was zoo zilver, zoo goud, dat hij geen mensch meer was, geen priester, maar een idool werd, en, zoo hel in het zonlicht, een god. De Menigte zag den god, zij zàg hem: eerst als Sekselooze Geest van het Licht; daarna zoû hij als Man-Maagd op de Aarde dalen en Middelaar zijn tusschen het hoogste en het laagste. Wie de mysteriën kende, zwolg in extaze; wie niet meer dan zinnelijk was, voelde zijn zinnelijkheid opzwiepen tot een verlangen van razernij: mannen verlangden, vrouwen verlangden; kinderen strekten de handen uit naar het idool. Niemand bereikte het. Dat stond ver, roerloos, onbenaderbaar, en duidelijker, duidelijker verzichtbaarde het, omdat de nevel der geuren klaarde. Zijn naam werd gegalmd; zijn glorie geroepen; kushanden wierp men hem tegen. Roerloos bleef hij, en onbewegelijk, de armen van het lichaam af, en de handen geheven in een gebaar van ontvangen. Hij ontving de Aanbidding der Menigte. Zijn violette oogen, gebistreerd en omzwart, staarden star naar den gesloten hoofdingang, recht voor hem uit, maar zijn vermillioenen lippen vermenschelijkten: hij glimlachte, omdat men hem kussen wierp. Zijn glimlach ving die kussen op. Hij ontving ze van alle zijden: door geheel de schemerende apadaña vlogen de kussen naar hem toe. Hij weigerde er niet een.
+
+Met een hijgenden glim- en grijnslach zag de Menigte toe, kwijlende van voldoening en zaligheid. Om de lagere ommegang hadden zich de fluitdeernen geschaard en hare om liefde gillende klacht klaagde op, hooger en hooger, smachtende galm der aarde. Langzaam bewoog Bassianus de handen op en neêr, hief ze hooger, als reikte hij het verlangen den hemel toe. Zijn zilveren lichaam ving heel zachtjes aan te golven, heen en weêr, als deinde hij lichtelijk op den adem van zang, als ware hij een groote lelie, die op waai van zachten wind bewoog. Zijne oogen zagen niet strak meer, maar droomden heel ver weg, en zijn glimlach werd van ontferming aanbiddelijk. Heen en weêr, heen en weder deinde hij, de handen vaag geheven in reiking, òpheffing, en zijn zilverwitte leden wisselvloeiden van licht; zijn juweelen schoten vònken, telkens de zelfde, doofden, en vonkelden weêr. Plots sloegen alle cymbalen tegelijkertijd, en die veelvoudige slag was een schrik. De Menigte schrikte, hijgde. Op den cymbelslag had Bassianus zich voor-over op eenen voet gewiegd, den andere àf van den grond, en zoo wiegelde hij in evenwicht, kunstiglijk, als wiegelde hij weg van de aarde, in stralenden droom. Hij zweefde: zijn voet, zichtbaar in de linten des schoeisels, wreefde hoog, zoolde hol naar binnen; op de tip van de teenen beéfde hij, los van de aarde, heen. Zijn oogen smachtten ten hemel, maar zijn glimlach lokte de van liefde galmsmachtende Aarde hem te volgen... Sistra snerpten, en plotseling, onverwachts, wirrelde hij op den teenentip in het rond, draaide als een glinsterende tol, stond stil, begon, langzamer, om den Steen te gaan in rythmische wringing; zijn geheele lichaam wrong nu en telkens voor de oogen der zwel-gende Menigte wisselde de volmaakte lijn van zijn lichaam: nù was het de snelle golving, van hals over even schraal schouderblad-gevleugelden rug en heel smalle leest omgordeld, naar teederlijk rond welvenden onderrug, en lintomstrengeld slank achterbeen, nog even gestrekt, zich dan inhalende, en den voet voór plaatsende, hiel van den grond, op druk van zweef-lichte teen; dàn wirrelde hij om en men zag hem van voren, òmwendende, zoo dat zijn knapeborst uitzette en zwol tot een boezem van maagd, dubbel roze getipt onder het halssnoer, terwijl de maagholte introk, zich de ribben heel teer duidelijk teekenden, en de buik tusschen den dalenden gordel op en neêr scheen te schokken in kunstig beweeg van onzichtbare spieren.
+
+De mitra hem afgenomen, sloeg hij de armen rondom den kruin, steunde zich het achterhoofd in de armen en zijn lijf boog naar achteren, naar den Zwarten Steen toe, en meer en meer, tot het scheen of hij breken zoû. Iedere lijn van zijn lichaam zwolg de Menigte; dronken stond zij puiloogend op de bloem van zijn navel te staren. Maar de cymbels sloegen en hij richtte zich plotseling, wirrelde in een spiraal van verstraling, zoó snel, dat hij niet was dan een trilling zilverwit, goudstip overvonkeld. Tot hij zich weêr boog, maar rug gekeerd naar de Menigte nu, zoo dat zij rug over onderrug heén zagen knakken, spangebogen de beenen, en het gelaat naar achteren hing, met oogen lachlonkend van onder-op. Hij knakte in halven cirkel, steeds lager, steeds ronder, in lenigheid onbegrijpelijk, en die onderhouden moest zijn door vele beweging, en balsemzalving; zijne armen bewogen vaag; hij was als een plant, wier stengel achterover kwijnt en zijn hoofd was een groote goud-witte bloem, met oogen, die de Menigte lonkten... Een bewondering, krijschbrullend, ontsnapte aan den groep der gladiatoren dichtbij, omdat zij, mannen van lichaamsoefening en -kennis het ongelooflijk hadden geacht, dat een tengere knaap zoo laag en zoo lang en zoo rond zich achterover hield gebogen, en noch ruggestreng brak, noch zelfs maar evenwicht even verloor... Bassianus' glimlach verbreedde zich en langzaam, op cymbelslaagjes, bloeide hij met schokjes omhoog, wirrelde, stond recht, de armen geheven, triomfeerend. Niet meer dan een roode blos tintte zijn voorhoofd, geen ader was zichtbaar gezwollen. Maar, sekseloos, Licht, weifelde nu de Middelaar of hij, ontfermend, tot Man-Maagd zoû incarneeren en plotseling, vlak tegen den Steen, op razend sistra-gesnerp, slingerde hij op en neêr, schokte zijn buik, het hoofd achterover en schetste hij de weifeling van zijn erbarming: zich te geven aan de naar hem hongerende en dorstende Aarde als Man en als Maagd te-gelijkertijd in eén zelfde symboliek en hartstocht-ontferming. De wierook werd hem gezwaaid en te midden der Magiërs, zwaar bassige smeekhymne intoneerend, mimeerde hij de weifeling in afschijn van paradijs. De Menigte wrong zich in onmachtige wellustsmachtingen; zij golfde heen, om beter te zien, golfde weêr terug naar de zelfde plaats, armen zwaaiden, grove handen krampten boven de hoofden, vingers maakten obscene gebaren, kelen krijschten, omhelzingen hadden schaamteloos plaats. Onadembaar was de atmosfeer, zwaar van gehijg, zwaar van wierook, zwoel van zweet. Vrouwen bezwijmden, wierpen zich achterover, smeten zich tegen de mannen aan; de naam van de godheid werd uitgeschreeuwd:
+
+--- Helegabalus! Helegabalus! galmde de goddelijke naam.
+
+Geen, die onverschillig toezag; geen zelfs, die alleen maar nieuwsgierig was naar een optocht, een spel, een dans. Allen greep de extaze aan. Zelfs op de tribunen lagen verzwijmd de vrouwen tegen de mannen aan, rukten zij hare gewaden af. Hydaspes staroogde in transe; Semiamira gaf een kreet en wierp zich achterover, in de glorie van haar gouden chlamys. Alleen Mammea bleef strak en koel, en de oude Mœza, de oogen fel op de Menigte, daalde af van de estrade en sloop de veliten door, wenkende met onzichtbaren wenk, Ganadasa, den Indiër.
+
+--- Helegabalus! Helegabalus!! galmde de goddelijke naam; de Menigte sidderde in koorts; zij huilde van machteloosheid. Vrouwen snikten, omdat zij den Steen en Bassianus niet konden bereiken, en de soldaten der hulptroep-cohorten riepen uit, schor, op den dreun van een straatdeun:
+
+--- Hélé-gàbalus! Hélé-gàbalus!
+
+Door de snerpende muziek dreunde de deun, eindeloos, en hunne gekurasde en in leêren tunieken zware mannelijven schokten heen en weêr; hunne koppen verbeestelijkten; zij grepen elkander onder den arm, en vormden eene massa, onwrikbaar op zichzelve, mede wiegende, wiegende op den deun, dien zij daveren nu deden, trots den mystieken huiver van den Dienst en den Dans...
+
+--- Hélé-gàbalus! Hélé-gàbalus!!
+
+Van verre glimlachte de oude Mœza hen toe...
+
+En hun verbeestelijkte koppen grijnsden haar tegen...
+
+En het was of de huiver, mystiek, was verbroken, want plotseling dorst schreeuwen de Indiër Ganadasa:
+
+--- Heil en leve Bassiànus!
+
+--- Heil! stemde aan andere zijde de Parth Xybaran in. Heil de goddelijke Bassianus!
+
+--- Heil de heerlijke kleinzoon van de Eerwaarde Mœza! schreeuwde schril Orus, de kleine Egyptenaar.
+
+Een bruischen van stemmen stormde op door de apadaña; van alle kanten keek de Menigte, naar wie dorsten roepen met schelle stemmen: wie te ver was, om te verstaan, vroeg wat en waarom er geroepen werd.
+
+--- Heil!! bulkte de kroeghouder Matthias: hij stond naast den wisselaar, den Jood, tusschen een groep centurionen van de Romeinsche Cohorten, en de Jood, plotseling, snerpte:
+
+--- Heil Bassianus, den heerlijken kleinzoon van den beminden Antoninus Caracalla, hij, die aan ieder een mantel gaf!
+
+--- Wat zegt hij! Wat roept hij? vroegen de stemmen van ver.
+
+Maar de sistra snerpten luider...
+
+De rinkelbommen rammelden, en rommelden de trommen allen.
+
+De fluiten zongen smachtend en hoóger op, bèrstende van liefde-verlangen. Wel zag de Menigte om de groep der centurionen heen, dat zij ieder de hand strekten naar den wisselaar en den kroeghouder, die beiden hun uitdeelden --- wat zag men niet -daar de officieren het dadelijk verborgen tusschen de plooien van hun militaire-toga's...
+
+Maar toen hijgde de Menigte weêr naar Bassianus toe...
+
+Als in weifeling stond hij, de mitra weêr op, omringd door de Priesters-der-Zon, die ontdaan van hunne samaren, blank, naakt, jeugdiglijk waren, man-maagdelijk, hooggeschoeid, halsgesnoerd en gemitraad. Zij zongen en schenen hem allen te smeeken, met de hooge snerpingen hunner falsetstemmen zich geheél te geven, der Aarde, die smachtte, en de palmen open, of hij hun smeeking ontving, aarzelde hij niet langer dan de rite gebood. Als heel hoog klaterend water viel een jubelende gamma in, van in de handen gehevene harpen, en het nieuwe motief deed de zalige Menigte rillen. Zij kreunde, langzame kreten, smeekend als de Priesters-der-Zon. De Zonnekinderen knielden voor Bassianus en zelve nu zette hij de mitra af, en gaf dien aan kleinen knielenden Alexianus. Alexianus bood ze een priester links, en Bassianus ontdeed zich van zijn halssnoer, liet het in de handen van Alexianus vallen, die het bood aan een priester rechts. Toen glimlachte Bassianus en terwijl zijne naaktheid naakter werd, door àfdoen van mitra en òntdoen van halssnoer, drukte hij een gesp van zijn gordel, die Alexianus weldra opraapte aan zijn voeten. Maar de Menigte bleef den Hoogepriester nòg sekseloos zien, in idealen god-vorm hooger dan de incarnatie tot menschelijke Man-Maagd; de juweelen schulp, die hem zijn lid verborg, bleef vonkelen, bevestigd aan onzichtbaar dunne linten, die maar even vleeschroze langs zijne liezen streepten. De wierook werd hem gezwaaid, de priesters weken terug...
+
+Het heel heilige oogenblik naderde. Hijgademend had de Menigte Bassianus' bewegingen gevolgd: nù wirrelde hij op het harpenmotief snel om zichzelven rond, en alle deernen omringden hem in wirreldans ook, wierpen zich voòr hem achterover, hem smeekend Man te worden. De Magiërs, handen hem toegestrekt, raasden hem met bassige hymne tegen, hem smeekend Vrouw te worden. Neêr te dalen op de Aarde, Middelaar, Middelaarster te zijn. En zijn glimlach scheen toe te stemmen, zijn ontfermende ziel tot erbarming besloten... De Menigte kreunde, op de estraden waren àllen verrezen... Semiamira krampte de handen in het ijle en hare oogen puilden. Hydaspes, tusschen de Magiërs, intoneerend de hymne, zag krijtbleek. Alleen Mammea bleef koel, de oogen gevestigd op haàr zoon, Alexianus... Op het harpenmotief wiegetrad Bassianus rond voor den Steen; zijn lichaam straalde als een zonstraal, die daalde, en wiegde als een bloem in den wind... Eéne deerne, Xylitta, wiegde meê met hem, bijna kruipende en krimpende aan zijne knieën, en hare àl tastende vingers volgden de maat van zijn tred. Nu naderde zij hem en vlug ontnam zij aan het linkerbeen de camee-gespen, drie. Bassianus danste door. De deerne zag doodsbleek, maar hare vingers bleven zweven naar de maat van den dans, en... daár tastte zij aan den strik van zijn schoenlinten onder de knie, en ontstrengelde zij in den dans, op de schokkende maat, hem de linten, liet ze los slingeren over haar armen. Angstzweet brak haar uit, maar Bassianus steeds, glimlachte, de Middelaar besloten tot dubbelsekse te splitsen... Allerkunstigst bleef hij halfontschoeid dansen; zij hem volgende in iedere tint van zijn rythmiek, zich wringende, krimpende, en zoo nàsmachtende zijn heiligen tred, de linten over haar arm. Toen Bassianus zijn voet hooger lichtte, ontdeed zij dien van den schoen, kuste dien, viel ter aarde. De Menigte zag Bassianus achter den Steen ommedansen; toen hij weêr voortrad, naderde hem de tweede deerne --- Livilla. Hare lippen trilden, hare vingers beefden... Als de eerste deerne --- Xylitta --- volgden hare bevende vingers zijn danstred rythmiesch uittastend mede, ontgespte zij op de maat de cameeën. Eén slipte haar vingers uit, en bijna viel zij flauw van angst. Maar zij wist de camee snel op te rapen en kruip-krimpende volgde zij in vertwijfeling Bassianus' tred, en tàstte uit naar den strik onder de rechterknie! Gelukkiglijk greep zij zeker, ontstrengelde, op de maat, hief de schoen van zijn voet wellicht eene seconde te vroeg: kuste den schoen, viel, bijna flauw, neêr ter aarde. En de Menigte aanzag de grootere en grootere naaktheid, die weldra tot dubbelsekse zoû splitsen. Wie de symbolen kende, zwolg in extaze en devotie; wie nièt, zwolg in voldoening, kwij-lende. Bassianus was bijna naakt, maar Man-Maagd was hij nog niet; sekseloos bleven nog zijn zilverwitte straalleden daar de robijnen schulp, eén roode vonkeldrop, brandde tusschen zijn beenen...
+
+--- Bassianus! Helegabalus! schreeuwde de Menigte. Heil en leve Bassianus Helegabalus! Heil en leve de goddelijke kleinzoon van Mœza, de goddelijke zoon van Semiamira, de goddelijke zoon van Antoninus! Heil de zoon van Antoninus Caracalla! Heil de Hoogepriester der Zon! Heil het heilige Kind! Heil zijn heilige Zonheerlijkheid! Bassianus! Helegabalus! Daal neêr! Daal neêr op aarde! Kom! Kom! Kom! Word Man! Word Maagd!
+
+Razende schreeuwde het volk. Machteloos van verlangen opgesloten tusschen de tallooze zuilen, achter de wacht der veliten, strekten daar allen de handen uit, schreeuwden alle kelen den naam van den erbarmenden god. En plotseling, de Magiërs, de priesters, de deernen, de Zonnekinderen hem dicht omringend, staande, geknield, en ter neêr gestort, gingen Bassianus' vingers langzaam uit naar den schulp, en lieten het juweel, als eén brandende roode drop, neêrvallen in de handen van Alexianus... Tusschen de reikende handen der deernen werd de Middelaar, nedergedaald, Man; zijn efebe-lid, klein, maar door de beweging van den Dans in streving gericht, verzichtbaarde rozigjes-wit; maar zilverblank zwol hem de borst, die hij tot maagdeboezem uitzette, en tusschen de reikende handen der Magiërs werd, àlvermogend, de Middelaar Maagd. En het was of alle de handen der Aarde uitstrekten naar zijne erbarming, want duizende handen der kermende, kreunende, krijschende Menigte grijpklauwden uit om hem meester te worden, kushanden werden hem toe geslingerd, en de mirmillo Gualterius bulkte, heel luid en heel hoorbaar uit:
+
+--- Lièvert, die je bent!!
+
+De knaap verschrikte; toen, van pret, kon hij zich niet ernstig houden, en lachte... En omdat hij lachte, lachten allen, en wie ver was, vroeg waarom er gelachen werd... Snerpten de sistra en rommelden de trommen, en zongen hoog schel de fluiten, maar de harpen droppelden steeds de eentonige gamma, en van alle monden vlogen de kussen uit alle vingers te-gemoet naar den knaap, die er niet één weigerde... Zijne oogen priemden schelms in de oogen van den mirmillo; toen zochten zij in dier anderen oogen, hem àllen tegenstarend: die der gladiatoren, der Klein-Aziaten, der Romeinsche legionariï, hunne centurionen, in wier groep hij plots, tot zijne verbazing, zijn grootmoeder Mœza ontdekte, druk pratende in haar paroxysme van autoritaire oude vrouw...
+
+Nog stond hij, zilvernaakt, tusschen de reikende handen der Magiërs en deernen... Over het zonne-opene heiligdom sluierden plots scharlakene vela, en maakten bijna een rooden nacht na de eerste stralende verblinding. Aan den voet van den Steen rees-op onder uit het heiligdom een gouden bedde, en in de gouden kussens zonk de Middelaar achterover en symbolizeerde zijn lichaam er het Altaar der Ontferming. De jubelende dans der deernen en de juichende hymne der Magiërs vierden de Blijdschap der Aarde, haar verlossing en dankbare extaze. De Zwarte Steen begon te stralen... Hij begon te stralen aan zijn kegeltop, en zoó fel verblindende, dat hij hemelsche schichten uitzond. De Menigte huiverde in zinnelijk afgrijzen en huiver mystiek... De Steen straalde, straáde feller, en in die overblindende schichtende straling zag de onmachtig daar heén smachtende Menigte den dubbelen Kus, dien de erbarmende Middelaar van de Aarde ontving: Magiërs zich buigende over zijn vrouwelijken mond; danseressen over zijn mannelijk lid...
+
+De juichende jubeling klaterde uit. De razende muziek snerpte over den razenden roep van de Menigte, die opdrong, opdrong, opdrong, in ijdel verlangen verliefd, opdrong en moordde en trapte en worgde en stikte, om dichter bij den Kus te komen, om deel aan den Kus te nemen, om zelve den Kus te geven... Maar plots, heel onverwachts, een dondergerol van goudene gongs: de Steen dooft, de scharlakene vela openen, de zon stroomt binnen, en smijt als zwart water over het gitten bazalt van den Monolieth; alle Magiërs, en priesters en deernen wijken terug; Bassianus ver-rijst, de handen geheven. Hij wirrelt als een zilveren tol; hij danst; Xylitta volgt zijn rythme, vangt zijn linkervoet in den schoen, dien zij ophoudt, en zij strengelt de schoenlinten met eén, --- tweé --- drie bewegingen, zeker rondom het been, klampt de cameeën; Livilla vangt na haar den rechtervoet, strengelt de linten --- eén --- twee --- drie: maar hare vingers beven; zij klampt twee cameeën, de derde hangt los... Bassianus moet zelve de hand doen dalen, en met gratie, natuurlijk-weg, verhelpt hij Livilla's fout.
+
+--- Bassianus! O Helegabalus! O, Antoninus!! krijscht, schreeuwt, galmt het volk. De knaap staart, verbaasd, dat men hem uitroept met den boven alle geliefden keizersnaam... Is zij gekomen, de ure? Roept men hem keizer uit? Hij weet niet, hij aarzelt, maar glimlacht, nu toch wel even verlangende, dat zij tot keizer hem roepen... Maar er is zoó veel verwarring van dringende Menigte in de apadaña, verwarring om hèm maar dichter te naderen: de veliten bezwijken telkens! O, hij is niet bang voor de Menigte, de Menigte, die hem aanbidt... Wòrdt hij tot keizer geroepen...?
+
+--- Antoninus! Antoninus! Augustus!!
+
+Hier en daar zijn het kreten verward, tusschen smakkende handkussen door. Buiten boènghen de gongs: snoer, gordel, mitra wordt Bassianus omgehangen, vastgeklampt, opgezet; de klokzware Opperpriestermantel wordt wijdmouwig hem aangeschoven...
+
+--- Bassianus! Helegabalus! Antoninus! Augustus! Lievert! Lièvert, die je bent!!
+
+Als zij zoo roepen, is het hem onmogelijk zijn idolewaardigheid te behouden. Hij lacht, blij, gelukkig, gestreeld meér om den brutalen liefde-naam, dan om de keizerlijke namen, die men hem toeschreeuwt... De stoet formeert zich, beweegt al voort ---: de Proconsul, Praefekten, de Magiërs, de Moeders, de Priesters en Zonnekinderen; de wierook walmt, de bloemen strooien en de kreten, de kreten galmen en krijschen en bulderen steeds en altijd door langs Bassianus' weg:
+
+--- Helegabalus! Antoninus! Lièvert! O, lievert, die je bent!
+
+Hij schaterlacht, gelukkig! Zijn godegelaat is dol-vroolijk van schaterlach, en, hoe ook de priesters eerbiediglijk hem dienen aan mouwen en mantelrand, al zijne eerste waardigheid is hij kwijt, want hoe goed hij zijn rol anders speelt, àl te dol-blij en zalig-gelukkig maakt het hem, dat een Menigte van zestigduizenden zoo brutaal verliefd is geworden, hem vlàkbij kushanden toewerpt nu, hem kop tegen kop aanlacht, aangrijnst, aanlokt, toekermt en kreunt van verlangen, tot hij eindelijk zelve, moeilijk uit opgeheven gemzware mouwen, zijn vingers zich brengt aan de lippen, en zijn kus links en rechts genadiglijk uitzendt...
+
+Buiten boènghen de gongs...
+
+Binnen worgt men, trapt men, vermoordt men achter de bezwekene wacht der veliten, om naar buiten te komen en in het Peristylium den Optocht nog eéns te zien. Stervenden liggen in de leêg vloeiende apadaña... Bloed kleeft aan de zuilen; overal verspreiden zich flarden van kleêren, slieren verloren sandalen...
+
+In het heiligdom, onverschillig, dooven tempeldienaren de lampen: de brons-zware gordijnen schuiven toe.
+
+# 4\.
+
+Door het peristylium ijlde in opgewondenheid Semiamira, dwars door den zwerm van deernen, priesters, slavinnen, kinderen, die na den Dans zich verspreidden, en zij stortte achter den voorhang binnen in haar zoons vertrekken, waar Vasthi en de ornatrices bezig waren met handen vol zalf Bassianus' lichaam van het zilverblanketsel te reinigen. En zij stortte, Semiamira, toe op haar kind, zij nog in de glorie van gouden chlamys, het haar torenvormig gekapt en azuur overpoeierd en zij greep haar zoon in de armen, ijdel van trots, hysteriesch krankzinnig na den Dans, die haar had doen rillen en sidderen op de estrade, tusschen de beide andere Moeders, de Proconsul, de Prefekten, de Aanzienlijken, en zij riep:
+
+--- O mijn kind, o mijn kind Bassianus! Noóit heb je zoo gedanst! Nooit heb je zoo gezegevierd! Nooit was je zoó heerlijk en heilig! Nooit heb ik je, als zoo even, lief gehad! O mijn kind, o mijn kind Bassianus! Mijn schat, mijn parel, mijn vrucht, jij, het allermooiste wat van mijn lichaam is, je voerde je moeder meê, in het paradijs, in het paradijs!! Heb ik gedroomd? Was het waar? O, mijn gouden lieveling, wat was je heerlijk, verrukkelijk! Ik had je kunnen éten, verslínden! Noóit ben je zoo verrukkelijk en heerlijk geweest! Je was om ergens weg te brengen, en stil te aanbidden!! En iedereen, àl dat volk, gekomen van overal, al die soldaten van de Syrische Legioenen, hebben gezwolgen als ik in je heerlijkheid! Lievert, hoe hebben zij je allen lief! Hoe vlogen hun kussen je tegen! Hoe hebben je hun kussen overstelpt! O mijn kind, o mijn oogappel, o juweel van mijn schoot, laat nu je moeder je kussen, laat je moeder je kussen, je kussen... o mijn kind, mijn Bassianus, mijn keizer!!
+
+En zonder zich aan den balsem te storen, die hem bedekte van het hoofd tot de voeten, greep zij hem in haar armen, en at hem de zoenen weg van zijn mond.
+
+Maar de oude Mœza was binnengestort, Semiamira achteraan, en ruw trok de oude vrouw haar dochter weg, en zij siste, fluistergedempt:
+
+--- Sœmis, Sœmis, stil dan toch! Buiten in het peristylium, hooren je priesters en slaven en deernen, zoo als je gilt en schreeuwt! Zwijg dan toch, zwijg dan toch, Sœmis! Noem Bassianus geen keizer nog! Bederf niet met je hartstochtelijkheid wat ik maanden lang voorbereid! Zeker, Bassianus is goddelijk geweest, maar ben ik het niet, wie hij zijn purper zal danken, zoo zij hem keizer roepen! En zij zullen het doen, van daag... Zwijg Sœmis, zwijg stil... Hoor, het volk is al zoo opgewonden en kan nauwlijks tot van avond wachten... Nog is het oogenblik niet daar... Nog zeiden mij de Praefekten te wachten, tot den avond... Gaf ik ze geen schatten? Is de Proconsul niet op mijn hand! O mijn Bassianus, mijn kleinzoon en heerlijkheid, heb nog geduld tot dezen avond... Laat Orus, Matthias, Ganadasa, laat Xybaran en de Jood geld en juweelen den soldaten nog geven --- nog niet hebben allen ontvangen --- want hoe lief zij ook allen je heerlijkheid hebben, zonder rijklijke giften roepen zij geen keizer je uit... O laat hen eerst, na dronken te zijn geweest in je aanblik, den verderen dag naar je dòrsten en hòngeren, en, Bassianus, blijf onzichtbaar! Blijf onzichtbaar, Bassianus! O spoedig, Vasthi; spoedig, vrouwen, baadt Bassianus, en droogt hem ten spoedigste... zoo, ten spoedigste!... en dan, in donkere mantel gehuld, Bassianus, laat mij je voeren in dichtgegordijnden draagstoel naar den Sterretoren, naar Hydaspes, en blijf daar verborgen in de mysteriekameren der Magiërs, die niemand zal durven schenden, tot het oogenblik daar is, het oogenblik daar is!!
+
+In paroxysme van spanning siste Mœza, fluistergedempt, omdat buiten, op de tempelpleinen een razende opwinding was van soldaten, die, den tempel ontkomen, zinnedronken van Helegabalus-Bassianus, vochten en stormden als in een verwonnen stad. Door het peristylium, verschrikt, door de citroenen- en rozentuinen vloden de zwermen der deernen; door de kolonnaden der priestergebouwen ijlden, samare-sleepslierend, de talrijke Zonnepriesters naar hunne kameren terug, sloten zich op, niet wetende wat er gebeurde, want door de parken, die geene licht-gewapende veliten of kavallerie van loricati meer wisten te beveiligen, zwermde de Menigte, en zwermden vooral de legionariï der Syrische legioenen, vermengd met benden van gladiatoren. En zij riepen: --- Bassianus! Helegabalus!! Neen, neen, Antoninus, Antoninus!! Wij willen Antoninus!!
+
+De oude Mœza drong aan, en zij wierp Bassianus, die tegenstribbelde, --- doodsbleek toch van spanning, luisterend naar de kreten --- een donkeren mantel om... Maar om in draagstoel te gaan, was het te laat, en zelve leidde Mœza langs de achtergebouwen van het Hoogepriesterlijke en Vrouwen-Hof, door de thermen en langs de latrinen en keukens, verborgen in hoog dicht heestergewas, Bassianus naar den Sterretoren, die ter zijde van de tuinen, atria en kolonnaden, waar de Menigte raasde en schreeuwde, was te bereiken zonder verhindernis. Maar Bassianus stribbelde tegen, en riep:
+
+--- Grootmoeder! Grootmoederlijkheid, dan toch! Laat mij! Laàt mij! Waarom moet ik nu naar Hydaspes! Hoor, de soldaten willen mij, zij roepen om mij: zij roepen, dat zij mij willen! Ik had tot hen moeten gaan, en mij toonen... Waarom moet ik naar Hydaspes!? U rukt mij uit de handen van Vasthi; ik ben nauwlijks gebaad, niet gekleed, mijn haren zijn nog goud van de verf! Nooit nog heb ik mij zoo achteloos vertoond!
+
+--- Gauw! Voort!! drong de oude Mœza, en hare pezige, sterke handen sleepten den stribbelenden jongen meê. Gauw! Vooruit, Bassianus! Ze mogen je nog niet zien en hèbben! Ze moeten hongeren en dorsten naar je, en ze moeten àllen eerst hun geld en amuletten ontvangen hebben! O mijn kind, o mijn kleinzoon Bassianus, bederf niet ondoordacht wat je grootmoeder, die je aanbidt, voor je wrochtte, maanden, maanden lang. Alles zal ik je geven, wat je verlangen kan: een snoer van monsterpeerparelen, iedere parel als een fallus gevormd: een filter zal ik je geven, die, als je ze drinkt, je eeuwig zal knapejong houden, zoo dat je geen dag veroudert, en levenslang je bekoring uitwerkt op àllen, die je zien dansen, op iedereen, die in je heerlijkheid staart... maar ga meê, ga meê; stribbel niet tegen!!
+
+--- Een snoer van monsterpeerparelen?
+
+--- Ja...
+
+--- En een filter, een filter, o Grootmoederlijkheid!
+
+--- Ja, kind, een filter van eeuwige jeugd: ik bezit het geheim er een te bereiden, kom meê...
+
+De knaap Bassianus volgde; de oude Mœza liet zijn hand niet meer los, en hij volgde, omdat hij de zwakste was: een kind, aan de hand van die vrouw. Een kind, alleen sterker dan zij, als zijn nog zoo vaak sluimerende passie's opkoortsten; een kind, dat een snoer en een filter op dit oogenblik meer telde dan het geheele Romeinsche keizerrijk, waarover de heerschappij hem al daagde toch! Hij liet zich meêslepen, volgende, ontevreden alleen, dat hij nauwlijks gebaad, niet gekleed dan in somberen mantel was, en zijn kapsel --- zoo dwaas --- nog de goudgeverfde Assyrische krullen waren, die alleen behoorden bij zijn plechtgewaad.
+
+--- Gauw! Voort!! haastte de oude Mœza. De Magiërs zie ik al op den toren; zij sluiten de geheime vertrekken zeker! En daár... daar zie ik Hydaspes!
+
+Zij wuifde den Oppermagiër tegen en ook Bassianus wuifde, en Hydaspes haastte zich de terrastrappen af, hen te-gemoet, en ontving hen aan de nog opene poort.
+
+--- Ik verberg Bassianus hier! riep de oude vrouw fluistergedempt. Verberg hem, verberg hem, Hydaspes! Het groote oogenblik is voor dezen avond! Hier zullen zij Bassianus niet zoeken! Ik zal ook zeggen, dat hij slaapt, en niemand kan zien. Hòngeren en dòrsten moeten zij naar hem, dòl moeten zij eerst van hem zijn, en dàn eerst mogen zij mijn lieveling hèbben, mijn heerlijken kleinzoon Bassianus. Heeft hij niet goddelijk gedanst! Was hij niet Helegabalus zelve?! Niet waar, Hydaspes, je verbergt hem hier...?
+
+--- Wees gerust, Eerwaarde, veilig zal ik Bassianus verbergen.
+
+Hydaspes sloeg den arm om den schouder van den knaap en drong hem de poort binnen, die hij sloot, drong hem de terrastrappen op. Zij zagen Mœza haastig verdwijnen tusschen citroenbosschen en Perzische-rozenmassa's. Zij staarden haar een oogenblik na.
+
+Een razend gegons van luidstemmige Menigte ruischte door de tuinen en hoven, langs de priester- en deernegebouwen, voor het Hoogepriesterlijke en Vrouwen-Hof, en het zwol voller tot eén kreet, dien zij duidelijk nu hoorden brullen:
+
+--- Wij willen Antoninus! Wij willen Antoninus, den zoon van Caracalla! Wij willen Helegabalus...!
+
+--- Kom, Bassianus! riep Hydaspes verschrikt; kom binnen en verberg je! Al noemen zij je met hun geliefdsten keizersnaam: Antoninus! Maar het is nog het uur niet: vertoon je dus niet! Nog zijn niet allen gewonnen! Wel het Legioen van Emessa zelve, maar niet àlle de Syrische en Foenicische legioenen: er aarzelen nog velen... Kom Bassianus, kom!!
+
+En hij haastte den knaap den toren binnen, trappen op, trappen neêr, tot binnen een rond vertrek, azuur koepeloverwelfd, beprikt met starren naar het evenbeeld van den nachtelijken hemel; licht kwam niet van buiten, maar Hydaspes had enkele starren doen opvonkelen: een zachte blauwwitte glans verspreidde zich; in het midden stond een zetel rond; op een drievoettafel lagen passers en astrolaben over papyrus vol hieroglyf van berekening: in kokers op den grond stonden de papyrusrollen op.
+
+--- Hier ben je veilig, kind; niemand weet mijn kamer te vinden.
+
+--- Nooit heb je mij hier gebracht, zei Bassianus.
+
+Hydaspes glimlachte.
+
+--- Je kwam 's nachts... Dàn heb ik den hemel zelve vol sterren, om ze samen met je te lezen...
+
+--- Ik was niet een vlugge leerling...
+
+--- Je was de liefste, dien ik ooit hebben kòn... Zie Bassianus: herken je je star daar?
+
+--- Ja... Maar zij wentelt niet?
+
+--- Ik kan haar laten wentelen... Zij is het bleeke evenbeeld van je eigen schitterstar en hier wentelt zij met de zelfde wenteling om, opdat ik ook des daags haar kan volgen... Zie...
+
+Hydaspes drukte op een knop, en het koepelfirmament bewoog zich sneller, draaide geheél om als een snel wentelende starrennacht... Maar Bassianus riep, de hand voor de oogen:
+
+--- O neen, Hydaspes, o neen! Laat dat! Het maakt me bang, zoo dicht boven mijn hoofd! Het maakt mij duizelig en het maakt me bang... Laat de starren stil staan, Hydaspes!
+
+De Magiër lachte: het geheele firmament was ommegedraaid, of in enkele minuten nacht en dag waren voorbij gesneld, en nu stond het weêr als het gestaan had, en de wenteling, geregeld, vertraagde, tot bijna onmerkbaarheid.
+
+--- Ik ben heel ontevreden over Grootmoeder! klaagde de knaap. Ze heeft me gerukt uit de handen van mijn vrouwen, zonder haar tijd te gunnen mij behoorlijk te verkleeden... Zie, ik ben niet gekleed; ik ben niet geschoeid; ik heb mijn voet alleen in losse sandalen geslipt... Mijn haren zijn, zoo dwaas, nog gekapt als zij waren voor den Dienst en den Dans... Ik heb alleen dezen donkeren mantel...
+
+--- Wat doet het er toe, Bassianus... Ben je niet heerlijk, hoe je ook bent? Blijf met je vergulde krullen, want je gezicht glanst er in als van een god, en zoo de zwarte mantel je ergert, hier, neem dezen witte met gouden sterren bezaaid, en wees de god van de Magiërs, na de god van de Menigte te zijn geweest. Wees mijn god, wees mijn god, Bassianus! Laat mij je zelve deze Magiërschoenen aanstrengelen, en laat mij dezen grooten smaragd schuiven aan je vinger...
+
+--- Er zijn letters op gegraveerd?
+
+--- De naam van den Oppersten God, òns alleen vergund uit te spreken: Abraxas: het Opperwezen van onze Gnosis, dat ons geopenbaard is geworden door mondelinge overlevering in de allerheiligste mysteriën en wiens zeven letters vormen het heilig getal van het aantal dagen des jaars... Kind, bewaar dezen steen en die talisman: het is misschien het laatste wat ik je geef.
+
+--- Waarom het laatste, Hydaspes?
+
+--- Wie weet, waar je morgen zal zijn...
+
+--- Zoo ik ver ga... ga je niet mèt me, Hydaspes?
+
+De Magiër schudde het hoofd.
+
+--- Neen kind, ik blijf hier.
+
+--- Waarom?
+
+--- Hier is mijn leven, hier zal mijn dood zijn.
+
+--- Maar Hydaspes... zoo ik werkelijk keizer word... volg je dan niet mijn geluk?
+
+--- Neen, mijn kind, want mijn geluk is hier geweest en ook mijn smart zal hier zijn!
+
+--- Ontvlucht die smart dan met me... Wie weet, waar wij morgen zijn...
+
+--- Ja, wie weet, Bassianus... waar je morgen bent... Maar zònder mij!
+
+--- Ik verlang niet te gaan, zonder je... Ik verlang heelemaal niet heen te gaan... Hier is het mij goed... Hydaspes, ik verlang niet keizer te worden... Het is Mœza, die mij keizer wil hebben, en terug verlangt naar Rome... Ik voel me geen Romein, maar Syriër... Ik herinner mij wel Rome, en het Palatium, maar ik verlang er niet heen... Emessa is mij lief; de Tempel van de Zon is mijn huis, gaarne doe ik iederen dag den Dienst, en mijn Sacerdotium en de Dans, iedere drie maanden, zijn mij een heerlijk genot! Geen Hoogepriester heeft den Dans ooit zoo gedanst als ik! Als ik dans, voel ik den god in mij komen... En dan de krankzinnige blijdschap van al dat volk, van al die soldaten, gekomen van overal, en die mij verheerlijken als Helegabalus zelven, dat is het wat mij zalig maakt en trotsch en mijn hart doet kloppen... Ik ben een god: wat geef ik om keizer te zijn? De keizers, na hun dood, worden vergood door een wet en een apotheoze; ik, levend nog, ben al vergood, ben al god, ben al de weêrschijn van Helegabalus over de wereld, zijn Lichtende Schaduw, en Middelaar... Is het niet zoo, Hydaspes... Waarom eigenlijk zoû ik niet altijd in Emessa blijven... Grootmoeder weet een filter, die jong houdt: ik zoû tot mijn dood en opstijging in het zonneparadijs, jong blijven, wie weet hoe veel wonderjaren lang, en ik zoû altijd, jong, den Dans blijven dansen, en het volk zoû mij altijd aanbidden... Als zij mij keizer uitroepen, wat zal ik doen...? Wat geef ik er om te heerschen, als ik dàns? Ik zal ook niet heerschen; Mœza zal voor mij heerschen; zij zal mij altijd bedillen en dwingen haar wil te doen... Maar ik zal mij losvechten van onder haar hand, komt het zoo ver! Nog dezen nacht dreigde zij mij met haar sandaal, mij, den Hoogepriester, mij, de Heiligheid van de Zon! Hydaspes, ik blijf liever hier... Laat mij hier stil blijven, bij je, terwijl zij daar ginds in de parken joelen als bezetenen en mij zoeken. Ik wil niet keizer worden! Ik wil hier te Emessa blijven, en als ik den filter heb, en mijn jeugd levenslang zal zijn, weet ik zeker, dat ik het Licht dienen zal, en zèlve het Licht zal zijn, zóo zuiver als het maar een sterfelijk priester gegeven kan worden. Terwijl... als... ik... keizer... word...
+
+Hij wierp zich in Hydaspes' armen en verborg bijna bang zijn hoofd aan diens borst. De Magiër streelde hem zijn stijf vergulde krullen.
+
+--- Kind! zeide Hydaspes. Niemand wijkt van zijn levenskring ook maar éen tred links of rechts af!
+
+--- Terwijl als ik keizer word, herhaalde Bassianus als in bange transe; --- ik voel het! --- dan zal ik het Licht niet kùnnen dienen, hoe ik mijn best zal doen, en ik zal geen Licht meer zijn! Neen Hydaspes, ik word geen keizer. Ik ben al het Licht, en ik wil het blijven, ik wil het blijven met jou! Hoû mij hier, verberg mij straks... Zeg aan Mœza, zoo zij mij halen komt, dat ik verdwenen ben, dat ik opgestegen ben in den hemel op de vlucht van een adelaar: als jij het zegt, zal, moèt zij het gelooven... En laat haar dan ijveren om Alexianus keizer te maken: wat kanmij Rome schelen! Ik ben geen Romein, ik ben Aziaat, ik ben Syriër... Hier leef ik, hier adem ik, hier dans ik, hier heb ik je lief, Hydaspes: hier heb ik het heilige Licht lief!
+
+En als een angstig kind smeet hij zich aan de borst van den Magiër, zijne beide armen rondom hem heen. Zijne violette oogen zagen groot en ernstig. Het was of hij de waarheid voelde en zàg --- zoo als hij haar steeds aanzweemde in den toren, op de terrassen onder den stertriltintelenden hemel, of in de mystieke binnenvertrekken... Hier was hem alles zielesympathiesch aan de sensueele mysticiteit van zijn ziel. Hier, met de citroenbloesem-geuren en roze-aromen, ademde hij de atmosfeer, die hij ademen moest om zichzelven te blijven, en goèd te zijn, en zònlicht te blijven, zoo als hij, in zijn knapeziel jeugdig, die nog als een weeke was in de hand van den Magiër zich vormen liet, de zonlichte Goedheid had weten te begrijpen met de hem nog maar even ontsluierde wijsheden der Gnosis en der Kabbala. Het duisterwemelde voor zijne blikken, dat als hij van hier ging, zelfs gepurperd, hij verloren zoû zijn voor het Licht... Dat was eene intuïtie, seconde-kort, maar heel hel ge-openbaard voor zijne nog kinderlijke, maar diep-in mystieke gevoeligheid... De hysterie zijner sensualiteit was fel in zijn bloed mede-geërfd en verscherpt door te veel kleur-geurige weekheid en weelde, te veel adoratie, en zelfs te veel mystiek, om de mannelijkheid niet voor altijd te hebben geknakt in zijn al van nature weifelende sekse, maar de gevoeligheid trilde, niettegenstaande geheel deze dubbelheid, hem in zijn kindziel met een verlangen naar het Glanzende: een verlangen zoo wel week --- om zich te koesteren; als blij-vroolijk, --- om juichend te dansen; als mystiek-helder --- om te zwelgen in glorie-extaze... Week als een vrouw; vroolijk blij als een kind; mystiek-helder als een priester des Lichts --- zoo zoû hij altijd blijven; onbewust artistiek en veelvuldig in zijne ziel, die niet anders was dan de uiterste bloem eener ùitbloeiende overbeschaving, en alleen in deze atmosfeer, hem sympathiek, deze atmosfeer van het sensueel-mystiek-geurige Oosten, dat hem begreep en dat hij begreep, zoû die uiterste bloem nog in pracht hebben kunnen ontluiken in de toegestane vervolmaking van hoe ook bizondere eigenschappen: òvergeplant zoû zij noodlottig, kort maar hevig, vergiftigen zìch, en allen, die zij bekoorde...
+
+Hydaspes, plotseling, zag, dat aan zijn borst, de knaap sliep... Als een kind, dat hij was, was hij in slaap gevallen, vermoeid na zijn bijna slaaploozen nacht op het torenterras, na den Dienst en den Dans, na zijne overhaaste vlucht uit het Hoogepriesterlijke Hof. Hij sliep, vast, en Hydaspes legde hem voorzichtig neêr, over de rustbank heen. Hij was van een bovennatuurlijke gratie. Hij wìst zijne schoonheid, zijn gratie, en, zeker, als hij danste, was hij als een mime en een ijdele vrouw tegelijk, maar nu, in de onbewustheid van zijn slaap, werd het duidelijk, hoe heel bizonder zijn schoonheid was: die schoonheid, waarin de sekse aanbiddelijk weifelde; schoonheid, die fabelachtig scheen, en in een eeuw van werkelijkheid scheen te doen herleven: Ganymedes, Hylas, Hermafroditos, Bacchus zelve...! De Magiërmantel, in wiens soupele blankheid hij neêrlag, trok over hem heen drie breede starrige plooien, en, onder de azuren starkoepeling van het vertrek, leek hij een neêrgedaalde, sluimerende god. Zijn lichaam, door de veelvuldige vooroefeningen van den Dans gebroken in lenigheden, die een bizondere zalf onderhield, was niet het gewoon-werkelijke lichaam van een knaap van zijn jaren, scheen waarlijk wel waardig te zijn tabernakel te worden voor de illuzie van de Man-Maagd, die de Magiërs droomden; zijne trekken, omkronkeld door de stijf goudene krullen, waren als wonderzuiver gebeiteld, en het was of hij hier anders sliep dan op de geelzijden matras van zijn eigen bedde, of hij verpuurde in zijn sluimering: een glimlachende rust dommelde in de hoekjes om zijn kleinen mond; aan zijn anders dubbelzinnige oogen, toegeloken, wimperden lang de pinkers aan de even blauw geaderde scheelen en gaven een schaduw van bijna weemoedige kalmte, en de teedere schraalheid der leden, die alleen even molligde bij schouders, borst en bovenarm, maar vertengerde naar leest, middel, en dijen, mengelde wel het dubbele in hem zoo ideaal van menschelijken vorm, dat geen beeldhouwer het beter in een marmeren symbool had uitgedrukt.
+
+De Magiër staarde op hem neêr...
+
+Gekweekt van zijn jeugd in de streving naar de Onzienlijke Dingen, levende steeds op de hoogere terrassen van zijn Starretoren, kende hij de Menigte niet, maar kende hij de Bizonderen, drong hij ze dadelijk door met een flits van zijn transe-oogen. Hij had dezen knaap lief, en deze liefde was hem de eenige aandoening geweest, die zijn hart vermenschelijkt had. Hij had Bassianus lief met den mystiek-sensueelen aandrang zijner Aziatische natuur, wie, hoe naar het Onzienlijke ook gericht, de zinnelijkheid toch als een warme stroom ging door zijn broeiend bloed; en hij had hem lief met een immensen weemoed, omdat hij, voor zich onbetwijfelbaar, zag in de starren en zag in Bassianus' eigene oogen, dat het onverbiddelijke noodlot loerde op dit heerlijk kind, als op een fel begeerde prooi. Hij zàg het, met éen doordringenden flits, dat dit kind --- deze bloemziel, uitbloeiend in de lucht, die haar eigen was, eene bekoring kon zijn, zoo groot, dat zij zelfs de grofste zinnen trof... dat zij, overgeplant en opschietende onder andere hemelen, zoû uitstrengelen in wilde verwarring en de slaking harer aromen een walm vol vergift zoû wekken... En terwijl hij neêrstaarde op het kind, wist hij, dat het zoû zijn, en dat er niets aan te doen was, omdat de machtige goden besloten hadden: de machtigste, die zijn onzegbaar; die welke alle zegbare goden zelve overheerschen... Het zoû zoo zijn... Hem verbergen hier in den toren...? Het was een droom! Zeggen, dat hij ten hemel was opgevaren op de vlucht van een adelaar? Het volk zoû het gelooven misschien; Mœza zeer zeker niet... En een oogenblik ondervond hij de verleiding het kind sluimerend te treffen met scherpen dolk in zijn hart, en daarna zichzelven, om samen uit te bloeden in het geheim van deze kamer onder het evenbeeld van den starrennacht... Wat was het leven? Een overgang... Enkele passen over den Eeuwigen Weg... Er meê te eindigen was zoo weinig... Het was die na-antieke onverschilligheid voor het leven, die de na-antieke zielen zoo rustiglijk voelden tegelijk met haar uitbundigen levenslust... In enkele jaren, momenten, in eén moment samen te vatten de essens van dat leven, zich daaraan te bezwijmelen dàt korte moment --- in genot, in kennis, in misdaad, in wellust, in de meest occulte wetenschap! --- en er meê gedaan te hebben... Voor de Menigte was het gedaan dan; voor de Uitverkorenen begon het... Als Uitverkorene minachtte Hydaspes de Menigte, dàcht zelfs niet aan haar, vond haar goed om te zwoegen en uit te bloeden; en hèm, Uitverkorene, was door eigen wil uit te bloeden niet het meest tragiesche, dat hij zich denken kon... Het leven te eindigen, aan zich of een ander den dood te doen: het was niet tragiesch, het was gewoon... Het bloed vloeide in stroomen, had eeuwen en eeuwen lang met stroomen gevloeid; in de starrenachten zag hij de hemelen rood van den wereldweêrschijn van bloed, en alleen dàn ontroerde het bloed hem... Maar enkele droppelen bloed meer uit zijn eigene aderen of uit die van dit heerlijke kind... wat telden zij? Het leven was soms niet meer dan een enkele diepe ademtocht...
+
+Bassianus van zijn Noodlot redden? Maar de fatalist in den Magiër wist zich te eerbiedig aan het Noodlot zelve, om het kind den dolk in het hart te drijven... Neen, redding was zoo zelden mogelijk... De onzegbare machten, zoo zij niet wilden, zouden zijn hand, die met den dolk mikte, kunnen verlammen... En met een glimlach, maar vol van een weemoed, immens, bleef hij staren en gaf, vroom, zich over, en gaf, vroom, Bassianus over... Als de paden van het Licht zich openen moesten, welnu, dan zouden zij openen zich, en het was nutteloos deze enkele droppelen, heerlijk bloed, mede te storten in den rooden wereldstroom...
+
+Plotseling schrikte hij op...
+
+Buiten, dichter en dichter --- bij honderden, die zwollen tot duizenden --- zwermde de Menigte en als een zee ruischte-aan haar veelvuldig stemgegons, van alle zijden den toren omgolvend. Hydaspes, door deurpaneel, dat hij verschoof, trad op het terras: de wand schoof dadelijk toe... De zon achter den Anti-Libanon baadde zich aan den einder der zee: een paarsch-roode hemel smeerde breede vegen van wolken aan de lagere lucht, die, amethyst-achtig, een damp overwaasde, als de zichtbare adem der hijgende aarde. Tegen dien damp verfabelden vager de palmen der stad, of zij in droom geziene waaierschermen verhieven voor een triomftocht van reusachtigheid... De Orontes kronkelde met schubben van purper als een slang van bloed, maar de zee, in den damp van amethysten nevel, vervaagde tot zwaar effene blankheid grauw, overspookt door een rijzenden mist. De zongloed in dien sluier getemperd, zonk weg aan het einde der wereld, zond nog even intenser haar allerlaatsten weêrschijn òp naar de paarsch-roode vegen, die een verre wind uitstreek tot smallere, wimpelende trilling: schemering zeefde een haastige asch, waardoor de eerste star al uitblonk.
+
+Het stemgegons, veelvuldig, zwol. De Magiër meende eerst zich terug te trekken om niet te worden gezien; toen, in zijn fatalisme, dacht het hem nutteloos Bassianus en zich te verbergen, ook al had de oude Mœza het hem verzocht. En staande, zijn hooge gestalte in witte sarapis duidelijk uit op het terras, onbewegelijk, luisterde hij naar de kreten:
+
+--- Wij willen Antoninus! Waar is de goddelijke Antoninus! Waar is het heilige Zonnekind! Wij willen Antoninus, den zoon van Caracalla! Heil, heil Antoninus! Heil Avitus Bassianus Antoninus! Heil Antoninus Helegabalus! Heil Antoninus Augustus! Heil, hèil, keizer Antoninus Augustus en heil Alexianus Caezar!!!
+
+De Magiër werd doodsbleek. Het was het uur! Daár zag hij Mœza; zij gebaarde druk in een groep van tribunen en praefekten der Syrische en Foenicische Legioenen; zij sloeg haar armen op en uit: zij scheen de soldaten zoo wel aan te hitsen als te temperen in hunne razernij, maar de kreten bulkten steeds luider op:
+
+--- Wij willen Antoninus! Heil, heil Avitus Bassianus Antoninus Helegabalus Augustus! Heil onze keizer en god Helegabalus! En heil, heil Alexianus Caezar...
+
+En de Magiër zag tot Mœza ijlen de blijde, fiere Mammea, en hij zag het kind, Alexianus, het twaalfjarige Zonnekind, den zoon van Mammea, door de loricati der praefektorale wacht, aan de zijde van den Praefekt van het Legioen van Emessa, getorst op een zilveren schild, en in vervoering uitgeroepen tot „Caezar“, terwijl zij Bassianus „Augustus“ uitriepen.
+
+Maar dwars door de Menigte brak zich baan eene vrouw, nog in plechtgewaad en glans van gouden chlamys, het haar gekapt tot een toren hoog, en de soldaten weken juichend voor haar uit en riepen:
+
+--- Heil de verhevene Semiamira! Heil de genadige Sœmis-Semiamira! Heil de eerwaarde Mœza, en heil Mammea en Semiamira! Heil de moeder van Caezar Alexianus, en heil de moeder van Antoninus Helegabalus Augustus!
+
+Het was het uur! Het wat het uur! Van het hoogste terras van den Starretoren zag de Magiër het uur geboren worden! Het duizelde hem, terwijl de misten na de schemering meer en meer onder hem de tempelparken schenen te doen zweven, of Emessa wegzweefde in een goddelijke apotheoze. Maar de werkelijkheid daar beneden was te brutaal; de drang van de Menigte, de wapen- en rustingklaterende samenstrooming van het Leger was al te forsch van waarachtig gebeuren, om den roze zwevenden droom vast te houden... Het was het uur, het was het werkelijke uur! En de Magiër zag Mœza hem toewenken, eén gebaar, maar geheven in allergrootste opgewondenheid.
+
+Hij begreep.
+
+Hij drukte open het deurpaneel der geheime kamer; hij riep:
+
+--- Bassianus!
+
+De knaap ontwaakte, om zijn roep en om de razende kreten, die uit de citroenbosschen en rozenmassa's opbrulden en -bulkten. Hij richtte zich van het bed met een schok.
+
+--- Hydaspes... Hydaspes... Wat is er?!
+
+--- Het is het uur, zeide de Magiër.
+
+--- Welk uur!
+
+--- Het uur, waarop de Wereld je toevalt, als je wettig eigendom, o mijn kind.
+
+--- Al die stemmen! Al dat geruisch?!
+
+--- Het Leger, dat je verlangt. Het Leger, dat je uitroept. Kom, kom, mijn kind...
+
+--- O Hydaspes... ik word zoo bang! Zàl ik gaan?
+
+--- Ja...
+
+--- Tot hen?
+
+--- Ja...
+
+--- Naar Rome??
+
+--- Ja... ja, mijn kind.
+
+--- Ik wil hier blijven!
+
+--- Neen... Kom, mijn kind...
+
+--- Hydaspes... ga meê naar Rome!
+
+--- Neen, mijn kind, ik blijf hier. Ik moet.
+
+--- Laat mij bij je blijven! Verberg me! Zeg, dat ik verdwenen ben! In den hemel ben opgestegen!
+
+--- Kom! zei de Magiër gebiedend.
+
+Hij strekte de hand uit.
+
+De knaap aan Hydaspes' hand trad buiten op het terras. Op de onderste terrassen zwermden de Magiërs; door de tuinen, naar den toren toe, was een immense samenvloeiïng van Menigte. Vingers wezen naar de knapefiguur op het hoogste terras, vooruit tredend: een kind met gouden krullen, in lange goudgestarrelde sarapis der Magiërs, die hem week vloeide en plooide van smalle schouders af... Uit de tuinen vertrapt, zagen de soldaten, de gladiatoren, het volk het godkind verschijnen in de roze apotheoze van den stervenden dag, boven de misten uit, zijn goudlokkige hoofd afglanzend tegen een amethystachtige lucht. Zij brulden en bulkten zijn naam en zijn glorie; nog dronken van den Dienst en den Dans, hongerend en dorstend om hem weêr te zien en te aanbidden. Een immense opluchting weêrdaverde de parken door, toen zij hem zagen verschijnen, nadat zij hem tevergeefs overal hadden gezocht, tot in zijn kameren van het Hoogepriesterlijke Hof, tot zelfs in het Vrouwehof van de Moeders.
+
+O, zij zagen hem nu.
+
+En Bassianus, alle die duizende brandende oogen op hem ziende gevestigd, voelde zijn bangheid vereffenen in een zacht, zalig, glimlachend geluk. Glimlachend gebaarde hij, staande, de opheffing zijner handen, als of hij, god, de hulde van de wereld ontving in zijn beide kleine opene blanke palmen...
+
+Maar hij schrikte...
+
+Omdat hij zag, dat de kleine Alexianus, getorst op een zilveren schild, gesteund door centurionen, nader den toren gedragen werd, uitgeroepen tot Caezar, tegelijk dat hijzelve keizer en Augustus werd uitgeroepen...
+
+Als een snel opspitsende adder in zich, voelde hij een ijverzucht op zijn neef...
+
+Maar het gevoel zonk zoo heel spoedig neêr, want àl het gejuich, àl de liefde, geheel dat paroxysme van vereering, aanbidding, vergoddelijking ging naar hemzelven toe. O, wat was het heerlijk te leven, wat was de wereld mooi, en hoe lief had hij de menschheid! Hij voelde het Algoede hem warm zaligen door zijn gelukkige ziel! O, wat was het heerlijk god te zijn, en in liefde, die streelende handen strekte, aanbeden te worden door menschen! O, lieve wereld, o dierbare menschheid! Hij lachte zacht van geluk en van zaligheid, en tegelijk stonden zijn oogen vol tranen... Zie, alle handen wuifden de lucht in, doeken wimpelden; en alle monden bulkten te gelijkertijd:
+
+--- Heil Avitus Bassianus Antoninus Helegabalus Augustus! Heil onze keizer en god Helegabalus!
+
+De Moeders waren den toren genaderd, en genaderd waren de centurionen, die torsten op zilveren schild Alexianus.
+
+--- Hydaspes! Hydaspes!! kreet Bassianus, en de adem stokte hem van geluk. De razende jubel naderde hem, klom tot hem op, als de krankzinnig verliefde smachting der wereld naar haar aanbiddeling. Het afwachtende kind hijgde er van, en trilde over zijn leden, als zoû die de torentreden opklimmende liefde hem een wellust brengen, te groot en te overmeesterend... Nu wist hij niet wat met hem gebeurde... Nu, sidderend, sloot hij zijn oogen, onderging hij zijn lot en hun liefde... Hij voelde zijn hand in Hydaspes' hand... Hij wist de Magiërs, de Zonnepriesters rondom hem heen... Hij voelde zich smoren in zijn moeders omhelzing... Aan de poort van den toren zag hij geschaard, te paard, de loricati der praefektorale wacht, en de praefekten, tribunen traden hem te gemoet... Mœza, Mammea naderden... Men hield hem Alexianus, op schild geheven, toe... Hij kuste zijn neef, hij liet zich door de Moeders omhelzen, niet wetende wat te doen, wat te zeggen, maar gebarende met gracelijkheid, zoo als hij het in de Diensten gewend was... Plots ontslipte zijn hand aan Hydaspes' hand, die hij nog niet had losgelaten... En door de centurionen op een schild getorst, een langwerpig gouden schild der chrysaspiden --- gouden-schilddragers --- droeg men hem tusschen de loricati door... De kavallerie vormde een wacht om hem heen... Maar zij kònden hem niet blijven omringen... De paarden steigerden, hinnekend, weken voor den drang van al de legionariï der Syrische, Foenicische legioenen... Geheel die onweêrstaanbare, strijdbare, sterke massa stuwde rondom het gouden schild, dat hoog de centurionen hieven, duwden en drongen rondom het schild, waarop zichtbaar het heerlijke kind bleef, als dreef hij in boot op een menschenzee... Rondom hem, en òp hem aan stuwden zij, om hem nu eindelijk te bezitten, te hèbben... In voldoening van wellust kwijlden de tronie's, opengescheurd van razend gejuich, en terwijl hij voortgedragen werd, strekten duizenden handen naar hem toe... Maar door die verlangens werd hij verder gevoerd, verder de parken door... Toch streelden de handen, die hem konden bereiken, aarzelend nog en eerbiedig, maar als in zalige profanatie, hem lichtelijk over de schouders, over de knieën, den voet... Oogen gloeiden hem tegen, lippen spitsten zich tot een zoen, die niet durfde... Maar anderen, vermeteler, roerden hem, raakten hem aan met grove soldatenvingers: hem aan te raken bracht tot geluk en tot voorspoed... Een soldaat waagde het den voet, dien Bassianus, bevallig pogende op het schild te zitten, een weinig hield uitgestoken, te omvatten in zijne knuisten en hartstochtelijk te kussen, en een naijver ontwaakte in allen, die, vlak bij, hadden gezien; anderen deden als de eerste gedaan had, kusten hem den voet, de knie... Hij gaf zich, genadig, blijvende in zijn glimlachende ontferming van neêrgedaalden god. Zijne handen gingen uit met de bevallige gebaren van den Dienst en den Dans en in het voorbij-gedragen-worden streelde hij de naar hem toegestoken soldatenkoppen over de oogen, de lippen, om den baard, zoo dat zij hem in de palmen kusten, heel snel, in het snellere voorbijgaan... Door een dichte streeling en liefkoozing droegen hem de centurionen tot op het tempelvoorplein...
+
+Daar verdrong zich in de schemering de dof gekleurspatvlakte Menigte, daar vocht zij om Bassianus nader te komen.
+
+--- Naar het Kamp! donderde de stem van den Praefekt van het Legioen van Emessa.
+
+De centurionen, torsende op het gouden schild Bassianus, bereikten moeilijk den wachtenden draagstoel, door twaalf Nubische dragers geheven, geheel toegegordijnd, wuivend van pluimen. Andere draagstoelen rijden zich.
+
+Bevelen, commando's verklonken: de loricati, op hunne paarden, trokken de zwaarden; de Menigte deinde schreeuwend naar achteren.
+
+--- Naar het Kamp! Naar het Kamp!! Naar het Kamp!!!
+
+De Menigte golfde weêr op, naar voren... En het waren als groote baren van menschenmassa, zeëe-gelijk, waarop de draagstoelen, als vaartuigen op stormvloed slingerschommelden... De knaap had de gordijnen opengerukt, en zij zagen nog even zijn glimlach, als een glans, en zij zagen nog even zijn wuivenden kushand... Op de donderende commando's rijden zich de loricati, de legionariï: het machtige Leger sloot den keizer af van de onmachtige, reikhalzende Menigte...
+
+Boven op de kroonlijsten der tempelgebouwen, tegen den duisterenden avond aan, snerpten de verschrikte pauwen, weggevlucht en -gevlogen, angstige kreten, als met een wanhoop om aanstaande verlatenheid, als met een krijschende smeeking tot Bassianus te blijven... in den tempel van de Zon... te Emessa... te blijven...!!
+
+De Menigte vloeide het tempelplein af, de zonzuilenpoorten door, achter de cohorten na, waar boven zij des keizers draagstoel even zagen pluimewuiven, in de richting van het kamp buiten de Stad...
+
+Door den sterrelenden nacht zuilde de tempel in een steeds wijdere verlatenheid op en alle de oogen der stierkapiteelen blikten neêr met een starren weemoed...
+
+# 5\.
+
 ...
