@@ -2260,4 +2260,300 @@ In den dieperen nacht brandden de geurvlammen op, en de gloeiïngen der feestver
 
 ## 4\.
 
+Eerste morgenstilte weefde een teedere rust door de portieken, die om de atria van het Gynaeceum zuilden; rustig verschoven groote vakken van schaduw zachtekens, zachtekens aan langs de roode stuc-wanden --- met fijne fresco-versiering --- of vielen lila neêr over het vloermozaïek; ter overzijde der schaduwen goot al zonneschijn staâg naar omlaag met een rustigen vloed van glans. De vascula murmelden van kleine wateren tusschen strenge stengels van arumkelken, die in de blanke bekers het licht schenen op te vangen, den stamper als een fallus gericht. Een krokodil, in roerloozen droom, den rug even zichtbaar, lag in het bekken, een klomp van rottend leêr gelijk en leek een oude caliga --- de soldatenschoen van een reus...: vlindertjes vlogen langs zijn starende oogen...
+
+Langs de binnenportieken liepen, van dienst, twee cubiculariï heen en weêr; in een loge ter zij waren zes Praetorianen ter wacht. Bij hen stond een Priester-der-Zon, en zij schertsten met hem als met een vrouw, en zij grepen in zijn wijde mouwen zijn geheel onthaarden arm, terwijl hij tegenstribbelde, lachende, ter zijde kijkende naar de cubiculariï, of zij niet opmerkten, dat hij zich vergooide aan gemeene soldaten. Een eunuch in sleependen samaar, dragende een koffertje van verguld, ging voorbij, en omdat hij den Zonpriester zag, giechelde hij, en de Zonpriester lachte terug. De Praetorianen wenkten den eunuch met obsceene roepingen nader, maar hij ging door, bezorgd voor zijn koffertje. Weêr naderden stappen, en Narr, de jonge Moor, vroolijk aangekleurd in zijn okeren rokje, muntomketend zijn stevigen, zwarten hals, lichtte een voorhang en riep:
+
+--- De keizer!
+
+Antoninus volgde hem dadelijk, haastig van tred. Hij droeg een korten morgentuniek, heel eng, van witte zijde, met gouden palmen gestikt, en een langen Perzischen mantel, die sleepte. De enkele gemmen aan zijn schoenriemen, de fibula van zijn mantel, de steenen in zijn haarband waren de zelfde: amethysten, fijn gegraveerd met een den oningewijde onbekend symbool. De twee cubiculariï stonden recht, in de loge hielden de Praetorianen zich stil, en de Zonnepriester verborg zich.
+
+--- De Verhevene Mœza? vroeg Antoninus.
+
+--- Eeuwigheid, de Clarissima is naar den Senaat, antwoordde een der cubiculariï.
+
+De Grootmoeder had haar zetel in den Senaat genomen, en zij werd er om met den titel van Clarissima genoemd. Zij was de eerste vrouw, wier heerschzucht dit had gewaagd en Rome, hoe verwonderd ook, was door het nieuwe bekoord.
+
+--- Semiamira? vroeg Antoninus.
+
+--- Eeuwigheid, de Augusta is nog niet uit hare vertrekken getreden.
+
+Antoninus herinnerde zich, dat Narr hem verraden had hoe zijn moeder in den nacht het paleis had verlaten, navolgende haar, wie zij zich uit vervlogene eeuw ten voorbeeld stelde, Messalina.
+
+Antoninus werd ongeduldig.
+
+--- Mammea?
+
+--- Eeuwigheid, de Serenissima is met den Caezar in het atrium van hare eigen vertrekken.
+
+--- Ik wil haar spreken, zei Antoninus.
+
+De cubicularius ging voor. De hooge stem van den keizer had trillend en nijdig geklonken. Zijn violette oogen zagen groot star voor zich uit; zij lonkten van morgen niet. Toch streek hij Narr over zijn kroeskop, beval:
+
+--- Laat mij.
+
+De Moor ging terug. De cubicularius leidde den keizer portiek en vestibule door, lichtte een voorhang op en kondigde:
+
+--- De keizer!
+
+Mammea, in hoogen thronus zat in het atrium; aan hare voeten lag Theoclia, haar dochtertje, terwijl Alexianus, in een klein rond worstelperk, worstelde met een Griekschen athleet, die hem leerde. De stevige leden van den naakten knaap --- hij was dertien --- schitterden op het tapijt in de volle zon als van een jongen Mars, niet minder dan de marmeren beelden, die veronbewegelijkten rings-omrond. Om Mammea zaten en stonden Alexianus' andere leeraars: de Grieksche grammaticus Nebo, de rhetor Serapion, Stilio de filozoof en Scaurinus, geleerde van groote faam. Welgevallig om de Moeder geschaard, zagen zij blijde de kracht ontwikkelen van Alexianus, fier en met regels van worstelkunst opwerkend tegen den athleet, die hem leerde. Zij rezen allen, toen Antoninus gekondigd werd: er was iets van een schrik in aller gelaatstrekken; los lieten elkaâr de athleet en Alexianus.
+
+--- Aha! spotte Antoninus, na een ironischen morgengroet aan Mammea, die rees op de treê van haar thronus; mijn neef Alexianus wordt
+
+opgevoed als een kleine Achilles, te midden van zoó vele waardige en geleerde mannen, die stralende zijn vorderingen aanzien, geschaard om de trotsche moeder, de blijde Serenissima Mammea! Heil, heil de deugdvolle Caezar; een Alexander van Macedonië wordt hij nog! Des te meer verwondert mij, o moeder van Alexianus, dat de Caezar zoo weinig belang stelt in de wedrennen van het Stadium, en dat hem door zoo eminente opvoedkundigen niet ook een weinig de hoffelijkheid worde geleerd, want anders ware hij gisteren zeer zeker in het Stadium verschenen, om zijn neef en keizer de overwinning te zien behalen in het wagenmennen, een athletiek wel niet zoo deugdvol als worstelen, maar toch ook niet geheél zonder verdienste. Mag ik u vragen, Serenissima, waarom uw alles beloovende zoon gisteren in de keizerlijke loge trof door zijn afwezigheid?
+
+--- Antoninus, verontschuldigde zich Mammea. Indien ik had kùnnen denken, dat ge op Alexianus' aanwezigheid waart gesteld geweest...
+
+--- Dan hadt ge u gehaast Alexianus naar het Stadium te roepen, dat begrijp ik, Serenissima. Het is ook wel moeilijk, niet waar, àl de wenschen van Antoninus te weten te komen en zich daarnaar te gedragen. Maar het gastmaal van eergisteren en het avondmaal van gisteren waren u zeker niet onbekende samenkomsten, en waarom, o Serenissima, mochten wij bij die gelegenheden noch u, noch onzen jongen Achilles in het Triclinium zien verschijnen?
+
+--- Te laat duren de avondmalen, Augustus, dan dat ik mijn zoon bloot kan stellen aan feestvieringen, die zijn gezondheid zouden schaden...
+
+--- O, is het dat, Mammea? En trouwe kloek, blijft ge bij uw kieken! Ik begrijp, ik begrijp, Serenissima. De opvoeding, die ge uw spruit geeft, is de antieke Romeinsche matrone waardig, en ik acht haar heel hoog, al geef ik voor mij den voorkeur aan die welke de Augusta mij gaf. Wel wat ouderwetsche tradities, o Mammea, huldigt ge om nog deugdvoller dan hij al is, onzen dierbaren Alexianus te naken. Propt hem vol, propt hem vol, o gij geleerden, met wetenschap en met deugd; ontwikkel je spieren, Alexianus, tot dat je lijkt op een mirmillo... Maar verwerp ook niet geheel de innige liefde, die je neef Antoninus je toedraagt, o Caezar, en sta hem op dit oogenblik zijn wensch toe: die van een kort samenzijn, alleen, en in vertrouwen, opdat wij niet geheel van elkander vervreemden, want je bezigheden, knaap, houden je soms wel heel lang weg uit mijn omhelzing!
+
+Ironiesch vlijmend, en te gelijker tijd trillend van gekrenktheid, verbittering, trillend tot tranen toe, had Antoninus' stem geklonken; nu sloeg hij beslist zijn blooten, goudomcirkelden arm rondom Alexianus' schouders, als wilde hij zoo weg met hem gaan. Mammea had een beweging van onrust; de kleine Theoclia wierp zich weenend, om Antoninus' stem, in hare armen; een angst voer zichtbaar door de groep der paedagogen --- maar niemand dorst iets zeggen: Antoninus was de keizer; doen mocht hij als hij verkoos. Hij voelde in zijn halve omhelzing de nauwlijks merkbare weêrstreving van den knaap, maar hij ging toch voort met zijn neef. Mammea's oogen volgden angstig, terwijl zij Theoclia suste... Zoo veel mogelijk hield zij haar zoon van Antoninus verre, bang voor verderfelijken invloed, want kuisch en krachtig wilde zij Alexianus houden. Antoninus deed of hij niets bespeurde van hun aller ontroering; langzaam wandelde hij met den kleinen Caezar voort, terwijl de Perzische mantel in breede plooien van zijde ruischend zong over het mozaïek. Den portiek door, wandelde hij naar de atria van de vertrekken der Clarissima, de Grootmoeder; onafzienbaar rijden de zuilen zich van de galerijen van het Gynaeceum, en de binnenhoven volgden elkander op; in de vascula murmelden de kleine wateren; tusschen lotos stond een ibis, roze of witte pauwen fladderden op, als de twee jonge lieden naderden.
+
+--- Alexianus, zei zacht Antoninus.
+
+Zijn stem, hoog schel van klank en gemaakt zangerigjes van natuur, kon weeker accent aannemen, inniger, vleierig streelend, als hij bekoren wilde.
+
+--- Alexianus, zeg, waarom doe je mij leed?
+
+--- Ik doe je leed, Antoninus? antwoordde de knaap twijfelvragend; straf liep hij voort aan zijn neefs zijde, gehinderd door den arm, die over zijn schouder lag. Maar ik weet niet, waarmeê...
+
+--- Met niet naar het Stadium te komen, als je weet, dat ik men. Met niet te komen... niet aan een banket, mijn kind --- maar aan het gewone avondmaal...
+
+--- Moeder wilde...
+
+--- Ja zeker: „Moeder wilde“ ... Zij wil wel eens veel en onredelijk... Waarom, Alexianus?
+
+--- Ik kom toch iederen morgen met Moeder tijdens den Dienst in den Tempel der Zon.
+
+--- Vroom ben je, Alexianus...: kon ik het ook anders verwachten? Zonnekind was je in Emessa en tijdens den Dienst liet ik in je handen neêr mijn mitra, mijn snoer, mijn gordel... Sedert je Caezar bent uitgeroepen, ben je geen Kind-der-Zon meer, maar waarom heeft Mammea geweigerd je priester te laten worden... Je bent oud genoeg, Alexianus, al ben je nog heel jong... En daarbij, de wet maak IK. Geen Magiër verzet zich je op te nemen in het college der priesters. Opperpriester zoû je dadelijk worden... Mammea heeft niet gewild... Ik vraag mij af, waarom, en wat haar bedoeling is, je niet zoo vroom op te voeden als het Licht welgevallig zoû zijn. Zeker, den Dienst woon je bij, iederen morgen, maar zoû je wel anders kùnnen, zonder van goddeloosheid te worden beschuldigd? Maar waarom, mijn kind, altijd ver van mij te blijven? Denk aan Emessa... De tempel, de toren, de tuinen... Herinner je? Wij waren samen... wij groeiden samen op, wij speelden samen... Alexianus, toen vermeedt je mij niet... Je zocht mij op, wij waren samen vroolijk in de rozentuinen en je zoende mij, herinner je wel, je zoende mij op den mond, en je zei me: ik hoû van je... Bassianus! Herinner je? Herinner je...? Als je met me meêging naar den Starretoren en Hydaspes leerde ons de heilige starrebeelden? Waarom, sedert wij in Rome zijn --- o, te Nicomedië voelde ik het al! --- ontwijk je mij, dierbaar kind? Het is alleen, omdat Mammea het wil! Zij houdt niet van mij; noóit heeft zij van mij gehouden... Maar als je zoo flink en zoo sterk bent, Alexianus, weés dan een kleine man, wees Caezar, en doe als jij wenscht. Als je nog van mij houdt, zeg dan Mammea: ik wil Antoninus meer zien... Weiger ik ooit je toegang? O Alexianus, je doet mij leed!! Leed doet het mij, dat je mij nooit meer zoekt... Dat je nauwlijks tegen me spreekt... Dat je mij begroet als den keizer en zelfs wel eens mijn knie kust, maar dat je mij nooit meer zoènt op den mond. Alexianus, waarom niet?
+
+--- Moeder...
+
+--- „Moeder, Moeder“...: jà, Moeder! Jawel, ik weet wel, dat zij het is, maar Alexianus, blijf een gehoorzame zoon, maar blijf mij ook dierbaar, o kind! Wil je? Wil je niet, Alexianus? O mijn Alexianus, zoo velen hebben mij lief! Te Emessa aanbaden zij mij uit alle steden van Syrië, Fœnicië, Mesopotamië! Te Rome aanbidden zij nu mij! Maar ik lijd meér om eén liefde, die ik verlies, dan dat ik gelukkig ben om millioenen liefdes, die de handen uit naar mij strekken! Alexianus, heb mij lief! Heb Antoninus lief, denk aan Emessa en beloof mij, dat je de zelfde weêr worden wilt en mij in vertrouwen komt zoeken...
+
+--- Ja Antoninus... ik beloof het.
+
+--- En geef mij een zoen op den mond...
+
+--- Antoninus... Moeder wil...
+
+--- Geef mij een zoen, op den mond!! riep Antoninus driftig; hij stampvoette.
+
+Alexianus kuste hem.
+
+--- Koud is je kus, kind! zei Antoninus.
+
+De knaap bloosde.
+
+--- Je kust mij, omdat ik beveel.
+
+--- Ik...
+
+--- Niet omdat je mij lief hebt...
+
+Tranen ontsprongen aan de oogen van den kleinen Caezar. Star zagen Antoninus' violette blikken neêr op hem. Hij strekte den vinger gebiedend uit.
+
+--- Ga! zeide hij. Ga terug naar je moeder! Nooit... versta je... noòit zal Antoninus je meer om genegenheid smeeken. Noòit... zal hij je meer smeeken... om een zoen! IK, de keizer, de Goddelijkheid van Helegabalus, dien heel de aarde smeekt om zijn liefkoozing... ik heb mij vernederd, om je een zoen af te smeeken, maar nooit... noòit zal ik het meer doen! Ga, worstel en word wijs!
+
+Hij lachte schamper: het weenende kind vluchtte weg. Antoninus zag hem na; ginds verborg hij zich snikkende in Mammea's armen.
+
+De keizer was in slecht humeur. Langs de portieken van de vertrekken der Clarissima liep hij en de Praetorianen der wacht rezen op, stonden in militaire strakheid en meestal met een groet, die een glimlach was en een genadigheid, beantwoordde Antoni-nus --- om hun harten te winnen --- hun eerbied; van morgen liep hij door of hij niet zag, klapte ongeduldig de handen...
+
+Een cubicularius schoot toe en hij beval:
+
+--- Laat Narr mij dadelijk in den Toren vinden...
+
+Door de atria en de tuinen ging Antoninus naar den Toren der Gemmen. Gedurende den zomer had men dien opgericht, een octogoon, vreemd omhoog stengelend met plakkaten van albast en van chryzoliet --- boven de loovermassa's van oleanders, laurier naar het blauw van den hemel toe. Een gril van den keizer, heel kostbaar; van ivoor was de poort; reuzensardonyx, beryl rondde edel- en harde-steen in arabesk om het chryzoliet; groote schalen van schildpad waren ingelegd en schenen geheimzinnige vensters... Een honger naar buitengewoonheid, naar bovenmatigheid prikkelde soms Antoninus en hij had dezen Toren hoog laten bouwen, met een vreemde gedachte, hem nog niet geheel en al duidelijk... Niemand had hier toegang dan Narr; de architekten waren verbannen, men zeide vermoord... De keizer zocht aan zijn keten een gouden sleutel en opende het slot. Een wenteltrap, smal, van gepolijst onyxen treden krinkelde hoog naar boven, gaf toegang tot een kleine achthoekige zaal, met acht vensters, waar door transparant email een roze licht binnenviel. In het midden een groote sigma, de kussens van zijde, goud doorweven. Antoninus wierp zich neêr, verveeld, hulde zijn hoofd in den Perzischen mantel... Hij snikte. De eenzaamheid woog hem. Geen geluid van de nog morgenstille tuinen drong door.
+
+Plotseling echter klaterden schel trompetten. De Clarissima keerde uit den Senaat ten Paleize. Het uur naderde van den Dienst en de Offerande in den Zonnetempel, bijgewoond door geheel het Hof. Maar Antoninus, nog in morgengewaad, bleef liggen... Beneden echter kraakte lichtjes de ivoren deur; een tred naderde over de onyxen trap: het was Narr in zijn okeren rokje. Hij kwam binnen en gooide zich plat neêr, voor het bedde. Antoninus streelde zijn wollen kruifkop.
+
+--- Sta op, Narr...
+
+--- Ja, Meestertje.
+
+--- Hèb je het?
+
+--- Ja, Meestertje: hier.
+
+--- Wat is het...
+
+--- Het is een holle brontea: een dondersteen, kijk.
+
+--- Hij is mooi, en bizonder!
+
+--- Ja, zie hoe die flonkert! Lichtbruin, met een gouden glans... Er zijn twaalf droppelen in. Twee zijn meer dan voldoende om ziek te maken, te doen kwijnen twee, drie dagen en dan te doen sterven... De twaalf droppelen, tegelijk ingenomen, bliksemen neêr...
+
+--- Weet je zeker?
+
+--- Ja. De geur- en giftbereider heeft voor mijn oogen van het zelfde gift een kind ingegeven, vijf droppelen: het bliksemde neêr.
+
+--- Goed. Hoe gaat de brontea open...?
+
+--- Er is een bijna onzichtbaar stopje. Kijk: hier, Meestertje...
+
+--- Ja, ik zie... Hoeveel kostte dat?
+
+--- Nog geen vierduizend sestertiën; de steen is wel mooi...
+
+--- Goed; de andere duizend mag je dan houden.
+
+--- Dank je, Meestertje, maar ik heb zoo veel niet noodig.
+
+--- Niet?
+
+--- Neen; wat doe ik er meê...
+
+--- Verlang je dan niets?
+
+--- Ik heb alles. Ik ben een slaaf, maar ik heb alles. Als ik maar met u mag blijven...
+
+--- Ben je dan tevreden?
+
+--- Ja...
+
+--- Ook als ik je sla en driftig word?
+
+--- Ook dan. Juist dan.
+
+--- Hoû je van mij, Narr...
+
+De Moor antwoordde niet: hij kuste Antoninus' voet tusschen de riemen van den schoen.
+
+--- Narr... de Caezar houdt niet van mij.
+
+--- De Caezar is jaloersch, of liever de Serenissima...
+
+--- Ik, Narr, ik haàt den Caezar nu!
+
+--- Moet ik den Caezar vergiftigen?
+
+--- Neen, neen Narr... Nòg niet... Ik ben niet noodeloos wreed. Dat kind... heeft het geleden.
+
+--- Wel neen, Meestertje. Het bliksemde neêr. Het was een kind van de straat. Het beteekende heelemaal niets.
+
+--- Dan is het goed... Leg den dondersteen bij de Fœnicische kruikjes, Narr. Hoeveel zijn er?
+
+--- Vijf. Met den dondersteen heeft u dus zes verschillende giften. Alle snelwerkend.
+
+De Moor legde den brontea in een der nissen van het vertrek, waar de Fœnicische kruikjes lagen.
+
+--- Narr, zeide Antoninus. Je moet me zes zijden strengen bezorgen. Maar onbreekbaar.
+
+--- Goed, Meestertje.
+
+--- De gouden dolk?
+
+--- Was nog niet klaar. De juwelier is een kunstenaar. De dolk wordt prachtig: het heft is met parelen ingelegd... Meester, het heilige uur nadert...
+
+--- Ik heb geen lust, Narr, van daag. Ik, zelfs ik, ben niet vroom aan het Licht van morgen...
+
+--- Hoor, de gongslagen boenghen al...
+
+--- Ja, ik kom... Ik kom... Heb je van morgen nog den auriga Hierocles gezien...
+
+--- Ja, hij dwaalde voor uw vertrekken. Hij wilde u zien. Ik zeide hem, dat u nog sliep. Meestertje, ik zoû dien man gaarne vergiftigen.
+
+--- Neen, Narr...
+
+--- Vóór gisteren zag u hem nooit. En gisteren at hij aan uw tafel. En toen u de geschenken over het volk strooide, stond hij vlak naast u. Van nacht wilde hij de portieken niet verlaten. En van daag... van daag zoekt hij u. Meester, pas op voor dien man.
+
+--- Waarom?
+
+--- Geef hem uw gunst niet.
+
+--- Waarom, Narr...
+
+--- Hij heeft u niet lief.
+
+--- Geloof je?
+
+--- Neen. Meester, ik ben maar een Moor en heb geen recht ijverzuchtig te zijn. Ben het ook niet van Aristomachos, Antiochianus, zelfs niet van Gordus, Murissimus en Protagenes. Maar hem, dien auriga haàt ik, omdat ik zie, dat hij u niet liefheeft... zoo als de anderen...
+
+--- Misschien niet zoo... maar anders.
+
+--- Neen, Meestertje. O, ik zoû hem met pleizier vermoorden.
+
+--- Neen, Narr...
+
+--- Niet, Meestertje? Hoor, de gongslagen boènghen.
+
+--- Ik kom.
+
+--- Ik waarschuw de kleedsters...
+
+--- Ik volg je...
+
+De Moor haastte zich de trap af; Antoninus volgde; nu het heilige uur van den Zonnedienst naderde, voelde hij een zacht weldadig gevoel van vroomheid aan het Licht, waarin eens alles zich oplossen zoû... Het effende zich in zijn ziel. Hij zag den Moor vooruit ijlen; hij hoorde hem kondigen:
+
+--- De keizer!!
+
+Vasthi, de ornatrices wachtten al. De gongslagen boenghden over de stad. In den Tempel der Zon --- die van Pluto-Orcus --- vergroot en vermooid, in het Helegabalium stroomde de Menigte samen. Toch zoû het niet meer zijn dan de daagsche Dienst... De kudde der offerdieren, hoornverguld, lintomstrikt, werd al blèrende aangedreven. Achter bronszware gordijnen was nog onzichtbaar de Zwarte Steen. Dansen zoû de keizer niet, maar toch stroomde de Menigte aan... Iederen morgen stroomde zij aan... Zij had tegenwoordig veel te zien; zij zwolg in gezichten, ongewoon van pracht, van symbool, bovenmatig, onmatig en buitengewoon: daar was zij zeer dankbaar voor...
+
+## 5\.
+
+Zoo als water wisselt van tint in speling van kleur en diepere doórschijning, als bries strijkt, of de hemel zich wolkt en weêr blauwt, zoo tintwisselde in de ziel van den knaap Antoninus de aandoening licht bewegelijk, en dien avond, na het maal, scheen hij vergeten de morgenontstemming om den kleinen Caezar, die hem niet lief scheen te hebben. Dollevroolijk was hij geweest, aanliggende tusschen den praefekt, den tribuun, Aristomachos, Antiochianus, de gunstelingen om hem heen en blijde zij allen, omdat Hierocles niet genoodigd was en vergeten scheen, na allereerste en heel snelle gunst. Zich verbijtende, hadden zij den auriga gezien, dwalen door de portieken, want wel was het hem vergund in het Palatium voortaan te blijven, maar zeker wisten de gunstelingen, dat de keizer hem niet meer dan den kniekus in het Stadium toe had gestaan, en een rozenkrans aan het avondmaal van gisteren, voór de geschenken waren den volke gestrooid. Hem nu uit het Paleis weg te krijgen, was hun aller samenstreving en Aristomachos, Antiochianus hadden zich tot de Clarissima, Mœza, gewend, maar de hooghartige vrouw, regeerensblijde, had de schouders opgehaald, duldde wel, dat Antoninus zijn gunstelingen koos, zoo als hijzelve verkoos, zij meenende, dat hij geen kind meer was en de keizer van Rome, en, zoo lang hij haàr, de Moederlijkheid, de macht liet, hem bedervende zoo veel zij bederven kon, in de aanbiddende liefde, die zij altijd voor haar liefste kleinkind gekoesterd had, haar oudste en mooiste en heerlijkste --- ook al gaf zij hem vroeger wel eens met de sandaal. Zoo als zij Antoninus aanbad, zoo aanbad immers geheel Rome hem en hij mocht, Zon, Helegabalus, bestralen, wie hij waardig keurde. Die hij waardig keurde, wàs waardig. Zij minachtte geheel dat plebs, zij minachtte àl die gunstelingen --- zij vertrouwde alleen den praefekt en den tribuun --- Antiochianus was praefectus-praetorio nu, opperbevelhebber des legers --- maar gunstelingen waren de zwerm van vliegen in het licht van de Zon, in den straal van Helegabalus, en, hooghartig, duldde de Moederlijkheid, dat An-toninus genadig was, waar hij verkoos. Het streefde haarzelve niet tegen. Zij was oppermachtig in den Senaat en ten Paleize; zij heerschte. Haar hoog doel had zij als bereikt... Een welvaart verbreidde zich door het Rijk. Handel bloeide, scheepvaart bloeide, de wegen waren veilig; geen hoogere belastingen werden geheven. De Pax Romana omstraalde met een nimbus van vrede de wereld-almacht van Rome. Rechtvaardigheid heerschte; op wijze rechtsgeleerden, als Ulpianus, stofte dit begin harer eeuw. Die glorie van het rijk, door Septimius Severus voorbereid, tot een apotheoze te maken rondom de zonvrome keizerlijkheid van haàr Antoninus, was het hooge doel der Clarissima, dat haar nabij scheen als de dag van morgen... Helegabalus tot het heil van de wereld, scheen te zullen zegevieren. Wat deerden in Zijn Licht de motten!
+
+Het keizertje, zijn morgenstemming vergeten, was dollevroolijk geweest, had van zijn blijheid genoten, als een kind, dat hij was, dartel, guitig, geestig en speelsch, zoo als hij zich meer en meer openbaarde aan de langdurige, late avondmalen. Heu, telkens was Antoninus anders! Des morgens had het Hof hem gezien, nijdig en norsch, om Alexianus; ten middage had hem het volk gezien ernstig, met den maar éven ontbloeiden glimlach van goddelijke genade, doende den Dienst en de Offerande, mystiek, dweepziek vroom en heilig in zijn gouden oppermantel, scharlaken offermantel, de mitra's plechtig verwisselend... Dien avond hadden zij hem mogen aanschouwen als een speelsch, geestig, guitig en dartel kind; zijn lach, vrouweschel, had geschaterd, omdat hij acht heel dikke genoodigden op een kleine sigma over zich plaats had doen nemen: nauwlijks konden de acht dikken zich nestelen op de sigma klein; zij hadden zich geklampt aan elkaâr en vermakelijk was hun aanblik geweest, die saâmklamping hunner vette leden op de te korte kussens, langzamerhand, omdat zij met wind waren gevuld en door slaven stillekens geopend werden, slinkende, slinkende tot platheid, zoo dat van de acht gasten, de dikkerts, de een rechts was gevallen, de ander links, twee anderen over die eersten heen, en, nijdig, de vier overgeblevenen elkaâr van de niet meer mollige sigma hadden geduwd. Nooit had de keizer zoo heerlijk gelachen en de dwergen waren weggeloopen, zeggende, dat er geen narren meer noodig waren aan het Hof, als de keizer zelve zulke grapjes uitvond. Na het maal had Antoninus gedanst, gedanst van louter vroolijkheid. Hij had krotalen genomen en gewirreld was hij van louter vreugde tusschen sigmae en tafelen door. Ja, vroolijk was hij altijd geweest, al in Emessa; plagerig, speelsch en guitig: hij kietelde gaarne, hij kriebelde, kneep toen al slavinnen en slaven; hij vond het heerlijk als er een struikelde, lang-uit --- maar zoo dòllevroolijk als hij zich openbaarde den laatsten tijd, hadden zij hem nooit te Emessa gezien: goden, wat was hij een lieveling! En duizendvoudig was hij: hij was alles en iedereen, die hij wilde zijn, en niemand, hoe ook zijn smaak ware, die niet een genot kon proeven aan den heerlijken Antoninus!
+
+Gewirreld had de keizer, zoo snel als een tol; zijn sleepend kleed had gekrinkeld rondom zijn slanke beenen met een wimpelende mede-beweging; plots stond hij stil, smachtten zijn oogen, lachten daarna onder de aangetinte brauwebogen, zijn lippen pruilende als tot een zoen, waarin àlle wellust werd samengetrokken, en hij wenkte en hij riep:
+
+--- Aristomachos! Antiochianus! Hoor! Hoor! Maar laat niemand het weten! Uit gaan we van nacht naar de Subura! Maar niet zeggen, hoor: mond houden! Doet donkere penulae om: ik vermom me en zal onherkenbaar zijn...
+
+De keizer wirrelde en met kushanden danste hij weg. Hij liep lachende, even rozewijn-dronken, de cubiculariï voorbij, duwde ze weg en stortte naar zijn vertrekken toe, voor dat Narr hem kon kondigen. Vasthi en de ornatrices wachtten er hem, en Narr volgde Meestertje op den voet. Op schrikten uit soezende dommeling de vrouwen, want zij verwachtten den keizer nog lang niet, om hem uit te kleeden voor nachtrust. Maar Antoninus riep:
+
+--- Gauw, gauw, Vasthi, Statyra, Livilla...
+
+En zij begrepen, dat de keizer zich wilde verkleeden. Dat was dien dag de vijfde maal: het morgenkleed, het priestergewaad, het gewaad voor de siësta en het tweede bad, het gewaad voor het avondmaal: wàt zoû het nu moeten zijn? Moê waren de kleedsters, en Livilla gaapte zelfs... Maar Antoninus merkte het niet en zelve slingerde hij zijn mantel af, zijn rozenkrans af, en riep:
+
+--- Gauw, gauw, Vasthi, Statyra... kleed mij uit, Livilla; bind mijn schoenen los! Vlug, Statyra, tint mij de wangen wat bruiner, bistreer mij donkerder om mijn oogen --- dat ik den appel toch niet van kleur kan veranderen doen, dat daar niets is voor uitgevonden! --- en zoek mij een rosse pruik; poog mij onherkenbaar te maken en, Vasthi, vind mij in den koffer van de vermommingen dat kleine tuniekje van een pasteibakkertje --- een cupediarius! weet je wel, zoo een klein wit tuniekje met een voorschootje en met heel eenvoudige witte schoenen met witte riemen, en een wit koekebakkersmutsje. Gauw, gauw, Vasthi, Statyra... Doe het, Statyra, maar grofjes weg: je hoeft niet zoo fijntjes te schilderen als je het doet voor den Dans, hoor: ja streep de oogen maar flink donker aan, want ik wil niet, dat ze me kennen... Vlug, vlug toch, Vasthi, wat teut je nog met zoo een eenvoudig pakje... Roep Narr, zeg, dat hij meê gaat, maar laat hem zijn okeren rokje uitdoen en een donkerder rokje aandoen en geef ons beiden een bruine penula, om stilletjes het Paleis uit te komen. Langs het achterperistylium en de latrinen zullen wij gaan... Daar is de praefekt al! Antiochianus, wacht mij bij het achterpoortje...
+
+Hij repte de vrouwen, die liepen elkaâr voor de voeten; zij vermomden hem in een oogwenk. Zij lachten van vroolijkheid en dollevroolijk was Antoninus ook; in de spiegels, die Narr hem nu voorhield, zag hij zich onherkenbaar waarlijk; een heel jong, guitig pasteibakkertje, dat nog wel iets anders dan oliebollen scheen te belooven. En, klaar, haastte hij zich met Narr, beiden in bruine penulae omhuld, de kap tot de oogen getrokken, langs de latrinen naar het achterpoortje; daar wachtten de trouwe tribuun, de trouwe praefekt en zes Praetorianen, vertrouwd, bruin vermomd ook en zonder helmen, stevig kroesrond-blootkops; drie gingen voor, drie gingen achter; Antoninus liep tusschen de beide officieren en Narr, aan een stalletje, kocht een draagbord aan rie-men, om òm te hangen, en veel vettige oliebollen.
+
+--- Abah! ríep Antoninus; hij proefde er een en wierp dien Aristomachos plat op zijn oog; de tribuun bulderlachte, gelukkig. Blij om des keizers gunst en vertrouwen, waren gelukkig de beide officieren en met vluggen, luchtigen tred repten zij zich naar de Subura. Door de kleine kronkelstraatjes, waar koppelaarsters hen aanhielden; onder vervallen arkaden, waar men satyrion verkocht --- het geil makend standelkruid ---; over het vervuilde plaveisel, gebarsten en langs de wegwerpselen, die stapelden en stonken van vischgraat en rottende groenten, repten zij zich naar de nauw-lange straat: daar waar zich rijden de taveernen en de bordeelen, langs welke de pleizierzoekers snuffelden en waar op de drempels de waarden, waardinnen op de vingers telden al wat zij verschaffen konden en voor hoeveel: een kamer alleen, een bed in gemeenschappelijke zaal, een avondmaal, een vrouw of een jongen; op kleine theaters zouden mythische voorstellingen worden vertoond; in sellariae werd een blik gegund op de spinthrische aaneenschakelingen, door keizer Tiberius uitgevonden; dansen krinkelden om door de nauwe straat, muziek van kleine Egyptische harpen krijschte valsch; fluitgamma's daalden op, daalden neêr, en de waarden bulkten, de waardinnen galmden en riepen binnen en toonden de koopwaar.
+
+Nu heeft Antoninus zijn penula afgeworpen in de handen van een der vermomde soldaten, en hoewel op afstand in oog gehouden, loopt hij alleen; aan zijn wat bruiner getinten hals hangt het draagbord vol vettige oliebollen, en hij knakt wat door op zijn knieën, hij doet nu den loop van een straatjongen na en hij roept met een accent van de straat, heel schel toch en prijzend zijn waar:
+
+--- Wie wil een oliebol! Wie wil een oliebol! Een oliebol voor een obool!
+
+Neen, het volk herkent hem niet. Hij loopt, hij galmt als een ventertje, hij duwt met zijn draagbord de Menigte door, en hij schreeuwt krijschend en valsch door geroep heen van dronken zwaaiers:
+
+--- Wie wil een oliebol! Wie wil een oliebol! Een oliebol voor een obool!
+
+En hij verkoopt zijn oliebollen. Hij laat zich dingen: drie oliebollen voor twee-en-een-halve obool, en hij steekt zijn duitjes op. Een taveerne loopt hij binnen: daar hangen zij over de tafelen, daar vloeit wijn uit de kruiken de kelen in en over den grond, daar vingerspelen zij morra, daar werpen zij met dobbelsteenen en het pasteibakkertje herhaalt zijn kreet:
+
+--- Wie wil een oliebol! Wie wil een oliebol! Een oliebol voor een obool!
+
+En een bordeel loopt hij binnen, vergunning vragend den waard, der waardin. Hij is geheel en al een straatjongen en een straatbanketbakkertje, en zijn oliebollen prijst hij aan met een lachje hier en een lonkje daar, zoo als de kleine bakkertjes doen, nog ander zoets dan hun koek beloovend. Een dikke lijnwaadkoopman achtervolgt hem en biedt hem voor dien nacht huisvesting aan, maar hij zegt, dat hij geen tijd heeft, en dat hij zijn bollen verkoopen moet, want dat anders zijn patroon heel boos is. Twee jongelui, vermomd in bruine penulae, scharrelend in de Subura, zien hem een oogenblik aan, diep in de oogen, en plots zegt de een, Gordianus:
+
+--- Sertorius, bij Venus-van-de-Subura, zie je dat bakkertje...
+
+--- Aardig, slank kereltje...
+
+--- Kijk hem eens goed aan... Herken je hem niet, herken je hem niet, Sertorius?
+
+--- Goden!! roept Sertorius uit en hult in zijn kap zich dichter.
+
+--- Stil, laat niets merken!
+
+--- Antoninus!!
+
+--- Ja, Antoninus... Stil!
+
+Zij hebben den keizer herkend. Het pasteibakkertje gaat vlak langs hen en hij gilschreeuwt in hun verhulde gezichten, die hij, onverschilligjes, nauwlijks aanziet:
+
+--- Wie wil een oliebol! Wie wil een oliebol! Een oliebol voor een obool!
+
+Gordianus koopt hem een oliebol af.
+
+--- Verkoop je nog wat anders dan oliebollen?
+
+Het bakkertje schertst brutaal en smerig terug. Goed is hij wel gegrimeerd, maar Gordianus toch heeft hem herkend aan zijn bevalligheid, die zijn aangenomen straatmanieren moeilijk verbergen kunnen. En voorbij loopt het bakkertje den patriciër en zijn cliënt; een grooter bordeel loopt hij binnen. Daar wisselen de orkesten: Egyptische vrouwen tokkelen de harpen en Syrische jongens snerpen de sistra daarna. Gallische vrouwen zingen en dikke negerinnen buikdansen door een wolk heen van heete ademen en smook van oliepitten, stank en benauwdheid, door welke wolk aan den stuc-wand de fresco's leeren de lessen der lust, in verwringingen onnavolgbaar en samensmeltingen fabelachtig. De kleine pasteibakker wordt bestormd; hij verkoopt zijn oliebollen, gezoend wordt hij hier en daar, tot hij plots, in zijn dartele dolligheid, de tien nog overblijvende oliebollen zijn aanvallers in het gezicht smijt. Zij spatten op de smoelen uit een, vet druipt uit oogen, langs baarden. En het bakkertje lacht en lacht; opgewonden van pret laat hij, half tegenvechtende, zich meêsleepen naar de gemeenschappelijke zaal, maar alle bedden zijn ingenomen en twee matrozen krijgen hem verder, het nauwe gangetje in, dat de kleine kamertjes scheidt. Binnengekomen zijn ook Aristomachos en Antiochianus, en zij herkennen Gordianus niet, zoo als Gordianus hen niet herkent. Buiten op hun hoede, blijven de zes Praetorianen. Tot een voorhang van een kamer wordt opgelicht en een vrouwengezicht nieuwsgierig uitgluurt, gelokt door de galmstem van het bakkertje, die haar zeker bekend schijnt te zijn. En de vrouw ziet in Antoninus' oogen: Antoninus, in den brutalen greep van die twee dronken matrozen, die hem meê zoeken te sleuren --- en Antoninus ziet in de oogen dier vrouw en hij herkent haar: zijn moeder! zoo als Semiamira haar zoon herkent. Maar zij rukt den voorhang snel dicht. Antoninus, schaterlachende, rukt ze weêr open. En de keizer van Rome, gegrepen door de dronken matrozen, de twee, ziet zijn moeder in de spierbultende armen van een reusgrooten mirmillo. Van louter pret en verrassing smijt Antoninus zich schaterlachende achterover; de voorhang rukt dicht, de matrozen slepen het bakkertje meê: zij begrijpen niet goed, zij hebben noch de vrouw, noch het kind herkend; zij zijn van Ostia, zij zagen nooit de optochten en ceremoniën. Voor in het peristylium wisselen de orkesten: trommen worden geranseld en krotalen worden geklapperd, en plots, vlak in elkanders oogen, herkennen Gordianus en Sertorius den praefectus-praetorio en zijn tribuun. Zij glimlachen elkander toe; zij hebben elkander begrepen...
+
+Op den drempel, vergeten, verdrietigjes, hurkt Narr wachtende neêr.
+
+## 6\.
+
 ...
