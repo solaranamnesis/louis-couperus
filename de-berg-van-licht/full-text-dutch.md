@@ -2,7 +2,7 @@
 
 ## Door Louis Couperus.
 
-### Amsterdam.
+### Amsterdam 1906.
 
 #### L. J. Veen.
 
