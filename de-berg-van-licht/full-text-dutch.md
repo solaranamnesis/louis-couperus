@@ -5336,5 +5336,3 @@ Maximinus de Thraciër 234-238
 Gordianus 1 en 2 238
 
 N. B. Keizer Aurelianus, 270-275, de overwinnaar van Zenobia en zoon eener Zonnepriesteres, heeft vijftig jaren na den dood van Helegabalus de te Emessa weêr overgebrachten Zwarten Steen in den Zonnetempel aldaar met eerbiedige herinnering aan keizer Helegabalus aanbeden.
-
-...
