@@ -6,6 +6,22 @@
 
 #### L. J. Veen.
 
+---
+
+# [Eerste Deel](#eerste-deel-1)
+
+## [1\.](1-1)
+
+# [Tweede Deel](#tweede-deel-1)
+
+## [1\.](1-2)
+
+# [Derde Deel](#derde-deel-1)
+
+## [1\.](1-3)
+
+---
+
 # Eerste Deel
 
 ## 1\.
