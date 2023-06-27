@@ -5321,18 +5321,18 @@ Nice
 Nov. 1904 --- Nov. 1905
 
 Lijst der Romeinsche keizers in den roman genoemd.  
-Marcus Aurelius	161-180
-Commodus 180-192
-Pertinax. Julianus 192-193
-Clodius Albinus	192-193
-Pescennius Niger 193-194
-Septimius Severus 193-211
-Geta 211-212
-Bassianus Antoninus Caracalla 211-217
-Macrinus. Diadumenos 217-218
-Helegabalus	218-221
-Alexander Severus 221-233
-Maximinus de Thraciër 234-238
+Marcus Aurelius	161-180  
+Commodus 180-192  
+Pertinax. Julianus 192-193  
+Clodius Albinus	192-193  
+Pescennius Niger 193-194  
+Septimius Severus 193-211  
+Geta 211-212  
+Bassianus Antoninus Caracalla 211-217  
+Macrinus. Diadumenos 217-218  
+Helegabalus	218-221  
+Alexander Severus 221-233  
+Maximinus de Thraciër 234-238  
 Gordianus 1 en 2 238
 
 N. B. Keizer Aurelianus, 270-275, de overwinnaar van Zenobia en zoon eener Zonnepriesteres, heeft vijftig jaren na den dood van Helegabalus de te Emessa weêr overgebrachten Zwarten Steen in den Zonnetempel aldaar met eerbiedige herinnering aan keizer Helegabalus aanbeden.
