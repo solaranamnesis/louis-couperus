@@ -3610,10 +3610,7 @@ De Augusta greep angstig zijn arm.
 
 --- Stil! Stil!! Ik ben bang... Spreek niet zoo hard... O, ik dacht, dat Hierocles achter ons kwam! Ik ben bang, ik ben bang voor dien man... Tè bang, om hem te vergiftigen... Neen Protagenes, vergiftig hem niet... Hij heeft een invloed, een kracht... Hij zoû, zelfs dood, ons beheerschen, over ons spoken... Stil! Stil!! Laten wij pogen... pogen Zoticus in den gunst van den keizer te brengen. Maar laat Antoninus nooit merken, dat wij de hand er in hebben... Ik ken mijn zoon... als mijzelve! Merkt hij, dat wij hem los van Hierocles willen maken, dan zal hij des te vaster aan dien aterling hangen... Hij heeft een kracht, hij heeft een kracht, die man, een andere kracht dan athletenkracht... Hij heeft iets, ik weet niet wat: sommige Magiërs hebben dat ook... Doen moet je, wat zij willen, als zij je maar even aankijken... Dat heeft Hierocles ook... De keizer kàn niet anders doen dan Hierocles wil... Zelfs Mœza... bukt voor Hierocles! Hij heeft een kracht, hij heeft een kracht, die man! O, toen hij daar stond, tegen zijn zuil, te spotlachen en... te wachten! Hij heeft --- ik ben er zeker van --- alleen door zijn kracht, zijn geheime kracht Antoninus gedwóngen hem met luide stem terug te roepen!
 
---- En wat verwacht men van mij, Augusta?
-
-[p. 56]
-vroeg de Magirus: volrood glunderde jovialerig zijn glimlach.
+--- En wat verwacht men van mij, Augusta? vroeg de Magirus: volrood glunderde jovialerig zijn glimlach.
 
 --- Zijne Eeuwigheid, de keizer Antoninus Helegabalus, zeide Semiamira; benoemt je tot cubicularius.
 
@@ -4244,5 +4241,1028 @@ Met een grooten snik hokte zij het uit; zij begrepen haar niet; Semiamira vroeg:
 Hij sprak den mystieken naam van den god niet uit, maar kuste aan zijn vinger Hydaspes' ring. Het was wel, trots klaterenden zonneschijn, koud soms en donker om hem... maar zoo de aarde donker en koud werd... warm en gloedvol bleef immer het Licht, de Berg van Licht, die ginds vlamstraalde in ver vizioen...
 
 ## 4\.
+
+Dien middag kwam de Senaat in de Oude Hoop ter audientie. De tempeltuinen en parken spreidden frisch weligend uit achter vierkante wallen, grachten, als een versterkt kamp, en Antiochianus' Praetorianenlegioen was opgesteld langs de lange eucalyptuslanen, die leidden naar het zomerpaleis. Ginds, door een groene loovering, streepten de marmeren zuilen ervan, kleurefladderden de bonte vela, glinsterbogen de gouden koorden, die ze ophielden van zuil tot boom. Cubicularii leidden de senatoren, zeshonderd van hen, om het paleis, in het hooggelegen achterpark; over de grasdellingen bespeurden de weidende oogen de Campania, in trillend licht naar vaag opalen bergen versidderend. Een vreemde stilte was in de tuinen, trots honderden, duizenden, die daar waren: het opgestelde legioen, geheel die talrijke hofstoet; een vreemde, bijna stemlooze stilte... want ook de senatoren fluisterden nauwlijks...
+
+En een langdurige wachting sleept zich voort, minuten, kwartieren lang, eén uur, anderhalf uur. Nog verschijnt de keizer niet. Eindelijk, boven, aan het Peristylium, een zingend gekners van openwijkende deuren van brons, een korte nijdige tuba-fanfare... Een stoet van Magiërs, priesters; een zwerm van kinderen, deernen; de gunstelingen, de Gemaal van den keizer, gelauwerd als een Triomfator, hoog en laatdunkend, en zeer omringd... geheel die stoet neêrzwermend over de vele treden van het Peristylium, naar den tuin toe, waar wacht de Senaat, in dubbele rij... Geheel het Peristylium is als eén troon, de gouden sigma in het midden... Weêr korte, nijdige tuba-fanfare, en de keizer --- alleen --- tusschen priesters zes, als een god, die aanstraalt uit den donkeren schemer van den binnentempel... Zijn gelaat trekt raadselachtig strak in zijn idoleemail, onder zijn mitra; in zijn gouden mantel, gemzwaar, is hij Helegabalus, maar geeft zich niet. Een toorn zetelt op zijn kindervoorhoofd; zijn violette oogen staren strak voor zich uit, of zij niet zien; zijn lippen zijn dun getrokken, bloedrood vermillioen... De zes priesters bedienen hem aan mouwen en mantelrand, nu hij zich neêrzet, hieratiesch stijf, op de sigma van gouden kussens. Hij leunt niet, hij ligt niet, hij verlokt niet en lonkt niet; hij zit, stijf afgodsbeeld, dat niet ziet, en wien toorn zetelt tusschen de brauwen... Zijn ringstralende vingers rusten even op zijn knieën; zijne naaktheid, juweel-overvonkeld, flitst blank binnen de gouden schaduwen van zijn mantel, die wijkt... Er is geen muziek en geen wierook rondom hem, als of zóo toornig de god is, dat hij versmaadt de aanbidding der wereld... Hij spreekt niet, hij geeft geen teeken... Er is een aarzeling, een niet weten hoe... De senatoren kijken elkander aan; de oudste naderen tot den voetkus. Maar de keizer schijnt hen niet op te merken; onzichtbaar blijft zijn voet achter zijn mantel, en zijne oogen starstaren over de opalen verte heen...
+
+Andere senatoren pogen te naderen: de keizer, star, schijnt den voetkus niet te wenschen. Hij zwijgt, en die zwijging, die wachting --- waarop weet niemand --- is be-angstigend; zenuwachtig met den slip van hun laticlavia wisschen de senatoren zich het zweet van het voorhoofd. Broeiwarm is het op dit uur... De keizer spreekt niet, beveelt niet, en om hem, woorden- en gebaarloos, zijn de zijnen, allen, die hem trouw zijn en hem lief hebben. De Senaat begrijpt: dit stilzwijgen is het antwoord op hùn stilzwijgen op Antoninus' Brief... Dit stilzwijgen is uit toorn... Dit stilzwijgen is een houding... Geen verversching wordt rondgediend... En steeds zit hieratiesch recht en stijf de keizer voor zich uit te staren, òver de trappen, òver de senatoren, dwàrs door de tuinen, òver de Campania heen... Hij is boos en hij is wel heel machtig... Al die troepen, ze zijn op zijn hand... Is de Clarissima niet hier? Neen, zij is niet hier! Waarom is zij niet gekomen? Zij gunt Antoninus zeker dit oogenblik van overmacht over Romes Senaat, ook al is het een macht van zwijging, van stilzwijging na het stilzwijgen van den Senaat... Niets, niets: geen geluid... Geen muziek... Alleen luìd getwetter van vogelen... De senatoren kijken op naar de boomen; sommigen blozen, anderen puffen... Er gebeurt niets, en in de van ceremonie-gewaden bontkleurige tuinen is eén algemeen, van te voren overwogen, ongebeuren...
+
+Tot plots tuba-fanfare... De keizer richt zich omhoog, gediend door zijn zes priesters, wendt zich om, en zijn gem-flonkerende rug verdwijnt in de schemering van den binnentempel. De audientie is afgeloopen! Maar op de hoogste trede van de trappen des Peristyliums --- vóor den verlaten troon van den keizer --- verschijnt Antiochianus, de praefectus-praetorio, en eindelijk weêrklinkt diens stem:
+
+--- Patres Conscripti! Heil wenscht u de Eeuwige, Antoninus Augustus Helegabalus, heil op uw aanstaande reize! Heden ten dage, heil! gebiedt de Eeuwige, Antoninus Augustus Helegabalus, Patres Conscripti, u allen, zonder uitzondering, de Stad te verlaten ter zelfder ure, en niet voor zijn goddelijk aanschijn meer te verschijnen, voor zijn genade u terug roept. Patres Conscripti, heil wenscht u de Eeuwige, Antoninus Angustus Helegabalus, heil op uw aanstaande reize!
+
+Een ruischen van ceremonie-gewaden; maar in de tuinen, dadelijk onderdrukt, een ironiesch lachen en proestend gefluister van stemmen: àl onder Antiochianus' woorden is het Hof achter den keizer aan teruggevloeid en verdwenen... De senatoren kijken elkander aan: eén, de beroemde juris-consultus Ulpianus nadert Antiochianus:
+
+--- Waarom, Antiochianus?
+
+--- Het is de wil van Zijne Eeuwigheid.
+
+--- Waarheen moet de Senaat?
+
+--- Waarheen de senatoren willen.
+
+--- Wij zullen wàken over Alexander!
+
+--- Wàakt... buiten de poorten. Maar vertrekt oogenblikkelijk. Ik ben een soldaat en praat niet, Clarissime. Bevolen ben ik ter dood te brengen wie niet aanstonds de Stad verlaat.
+
+--- Aanstonds? Van hier? Van de Oude Hoop uit?
+
+--- Van hier...
+
+--- Is het niet vergund eerst huiswaarts te gaan?
+
+--- Neen.
+
+--- Ik heb geen draagstoel voor reize.
+
+--- Zoek er een.
+
+--- Vele senatoren zijn te voet gekomen.
+
+--- Zij kunnen elkaâr als ezels dan huren.
+
+Een beweging, angstige beroering onder de opwaaiende purpergerande, goudgeknopte laticlavia's. Waarheen, welke poort uit... Waar een paard, een muilezel, een ezel te huren... een voertuig, wat ook maar... Antiochianus wacht... Om de baardlippen der Praetorianen, nog opgesteld, een ironie, een bijna grijnzende spot... Waarheen? En hoè weg? Zoo de Senaat weêrstond? Maar bij massa zoû zij vermoord dan worden, onder de strakke oogen des keizers... Nóoit hebben zij Antoninus zoo gezien... Zoo koud, zoo idool, zoo toornig! Waarheen? Hoè weg?! En Alexander, op het Palatium!
+
+--- Mœza zal waken!
+
+--- Wij gaan niet ver, wij gaan niet ver weg!!
+
+--- Ik blijf even buiten de poorten...
+
+--- Stil! Ik vermom me: ik blijf in Rome...
+
+Maar het zijn hovelingen, die komen spotten:
+
+--- Clarissime, ik heb een giraffe voor u: wil u wegreizen op een giraffe??
+
+--- Misschien staat de opper-offerpriester u een os wel af, of anders een span schapen voor uw reiskarretje?
+
+De Praetorianen, spotgrijnzend, staan roerloos, maar een àngst rilt door de waardigheid der senatoren... Zij vlieden de eucalyptuslanen af, zij struikelen, zij vallen in hun verwarde toga's; zij roepen buiten de wallen en grachten van het zomerpaleis:
+
+--- Heu! Hei! Hier! Wie heeft een kameel? Wie een muilezel?
+
+Landlieden, lastdragers stroomen daar toe.
+
+--- Vijftig sestertiën voor een muilezel! Honderd! Twee honderd! Op een wijnkar, goed, op een wijnkar! Twee flinke lastdragers voor mij! Als ik maar weg kom: hier kerels: draág me! Een ton? Een leêge ton?? Kan je er wielen aan maken? Twee honden er voor? Mij wel! Als ik maar wèg kom: hònderd sestertiën! Als ik maar wèg kom...
+
+In de brandende hitte, daar buiten, in een opgestuivel van stof, is een geroep, een geschreeuw, een geschagger, om welk vehikel ook... Aan de poort bulderlachen de Praetorianen: de centurionen, met hun commando-stemmen als koperen klaroenen, wenschen daverend na:
+
+--- Heil! Heil, Patres Conscripti, heìl op uw aanstaande reize!
+
+## 5\.
+
+De zon is nog niet gezonken, maar in oranje versmeulingen vergloeit ginds in het Westen de zinkende bal achter de paarsch schemerende stad; na de zwijging der audiëntie is in de tuinen eén blij schatergelach, om het avondfeest, dat zal aanvangen. Genoodigd onverwachts zijn vele Romeinsche matronen. Op de zelfde sigma, waar hij dien middag, idool-ongenaakbaar gezeten heeft en gezwegen, wentelt Antoninus, zijn blank lichaam als geïncrusteerd met Parthiesch ornament van roze topazen, zich dollachende vroolijk om, want voór hem mimeeren de narren en dwergen --- er zijn er zestig --- de vlucht der senatoren uit Rome: zij hebben over hun misvormde leden purperbanden geslingerd als laticlavia's; zij schreeuwen en roepen om een muil of een ezel, en zij vormen een dwazen optocht: zij zitten op elkanders schouders en vluchtten zoo, met kluchtigen uitroep van vrees voor Antiochianus' Praetorianen; zij zitten op de blèrende offerschapen, op de buffels; zij zitten op de tamme panthers en leeuwen; drie hangen er om den hals van een giraffe; vijf, in acrobatische stelling, stellen een wagentje voor: twee dwergen vormen de wielen en zij wentelen als raderen inderdaad rondom zichzelve... Niet alleen Antoninus lacht: allen lachen, de hovelingen, de gasten, de in wacht verder-af opgestelde soldaten; een quadriga van olifanten rent reusachtig verbijsterend de tuinen door: boven op twee der dikhuiden staat wijdbeens een nar en hij ment het vierspan, heel kunstig. Allen juichen hem toe, en Antoninus, om zoo veel dwaasheid, lacht tranen. Zie, in den bongerd ginds, onder de vijge- en mispelboomen zijn verrezen kleine bergen van sneeuw, voor de koelte, en tusschen die sneeuwbergen loopt een vijverwijd vasculum vòl van hartsgeurigen wijn: daar wordt een kleine Naumachie gehouden: een zeeslag op wijn, in miniatuur, om toch weêr eens iets nieuws te hebben. De keizer heeft op zijn schoot genomen een Egyptischen bazilisk; een vreemd dier, half krokodil, half draak: zijn AGATHODAEMON, zijn geluksbeestje: de schubben zijn met juweel geïncrusteerd, en als het beest met de pooten den keizer kriebelt, gooit hij het Aristomachos in het gezicht, die lacht. Nu, om vroolijk te zijn, heél dwaze dingen verzinnen. Guitig denkt Antoninus na... Is hij vergeten bitterheid, treurigheid in zijn ziel... de troepen in het Kamp ontevreden... Alexianus ginds op het Palatium...
+
+--- Het is voor van avond, fluistert hem Antiochianus in. Het is voor van nacht, nà middernacht... Aristomachos zal gaan met drie cohorten... De Paleiswachten zijn op ònze hand... De cohorten zullen eerst doen of zij de Paleiswacht plots overvallen... De Paleiswacht zal doen of zij wijkt... Dàn steken zij Encolpius en de zijnen overhoop... Dàn... dan vermoorden zij Alexianus en zijne moeder... De Augusta Semiamira zelve zal zoo veel zij vermag Mœza tegenhouden... In het ergste geval schaken onze soldaten de Clarissima, met de Augusta, en voeren de verheven Moeders hier heen... In het Kamp, van avond, bewerken trouwe afgezanten de troepen... Het is voor van avond, Antoninus, het is voor van nacht, nà middernacht...
+
+Nauwlijks hoort hem Antoninus. Hij denkt, guitig, na; hij is vroolijk; hij wil, hijwil vroolijk zijn... Goed, het is voor van nacht, nà middernacht... Dàn zal het gehate kind opgehouden hebben te leven! Onderwijl zullen zij vroolijk en grappig zijn...
+
+--- De slaven hier! roept Antoninus.
+
+Een zwerm stort zich over de treden van het Peristylium, voór de sigma des keizers... Tien slaven wijst de keizer met namen aan:
+
+--- Wie mij het eérste brengt --- hij heeft wat bedacht! --- duizend pond spinneweb... krijgt duizend sestertiën van me... Vlug, vlug, zoekt door Rome!
+
+Lachende, gierende storten de tien slaven weg, buitelen over elkaâr...: ze zullen door heel Rome zoeken!
+
+--- Rome is groot genoeg! zegt de keizer. Binnen twee uur --- wat zeg ik!... eén uur! heb ik mijn duizend pond spinneweb!
+
+Dàt heeft hij weêr eens gevonden! Niemand, die zoó uitvindt als hij! Geestige, ongelooflijke dingen! Duizend pond spinneweb uit Rome!
+
+--- De slaven hier! roept Antoninus weêr, en waar zij knielen, wijst hij tien slaven aan:
+
+--- Zoekt mij zoo spoedig mogelijk --- nu bedenkt hij wat anders! --- duizend wezels, tiènduizend ratten, honderdduizend... jà, hònderdduizend witte muizen!
+
+De tien slaven, niet wetende waar het eerst heen, storten weg; Antoninus lacht tranen en wentelt zich van dolvroolijkheid. Ze zullen zoèken naar wezels en ratten en muizen, want àls zij ze brengen, worden ze rijk beloond, en ze weten, de keizer kijkt niet nauw of het aantal wel juist is: denk je soms, dat hij ze tellen gaat?? Als zij twaalf wezels, vijftig ratten, en eenige witte muizen hebben, en ze laten die los over de treden van het Peristylium, dan is de keizer tevreden, dòlvroolijk --- als een jongen; als een kind, dat hij is --- en dan lacht hij, en dan gooit hij gul met het goud! Zelve begrijpt Antoninus niet, hoe hij zoo dol kan zijn, maar hij WIL dol zijn en vroolijk zijn; hij is BIJNA gelukkig, omdat naast hem Hierocles zit, die hem in zijn arm tot zich getrokken heeft, bij uitzondering teeder, en dien hij voelt zoo innig lief te hebben, dat hij hem zèlfs vergeeft, dat Hierocles dom lacht om den Zwarten Steen en nooit meer een enkelen Dienst bijwoont, zeggende, dat hij ze van buiten kent: schapen offeren; Magiërs, die bulderen; wierook en dans: iederen morgen de zelfde vertooning... Zijn Hierocles: hij wéet niet de Onzienlijke Dingen; begrijpt niet de symbolen er van... Toch heeft hij hem lief, boven iedereen, boven àlles, en alleen òver zijn liefde straalt zijn eerbiedige vroomheid aan het Licht... het Licht, dat hijzelve, hoe dof ook, op aarde is! Ja, hij is bijna gelukkig... en hij is, hij is dolvroolijk... hoewel hij inwendig ziek is van haat en wèl denkt, tusschen zijn dolvroolijkheid door, hoe weldra, nà middernacht, het gehate snotjong vermoord zal worden!!
+
+O, dat zal heèrlijk zijn! Dat vooruit te bedenken maakt hem zoo zalig te moê, aan de zijde van Hierocles... hem, dien iedereen haat... dien hij lief heeft... Hij schatert het uit: zie, daar nadert de komische optocht, een optocht als Antoninus verzinnen slechts kan! Zie, tusschen dwergen en narren, die fluit spelen en trommen slaan, naderen acht kalen, acht schelen, acht jichtigen, acht dooven, acht dikkerts: militair zijn zij gedrild te loopen voorbij de sigma des keizers; de kalen glimmen van hun schedelmanen, de schelen kijken elkander gluiperig loensch aan, de jichtigen hinken en trekkebeenen, de dooven zien nijdig en achterdochtig, maar de dikkerts zijn zoó uitgezocht van zwaarlijvigheid, dat zij het meest worden toegejuicht; op aanligbedden zetten zij onder aan de treden van het Peristylium zich neêr en worden bediend en uitgelachen, maar de sigma der dikkerts is zoo heel klein, dat zij elkander telkens duwen om plaats te hebben.
+
+--- Aan éen kale, eén schele, eén jichtige, schatert de keizer; is niets bizonders te zien, maar àcht kalen, àcht schelen, àcht jichtigen, en daarbij àcht dooven, en daàrbij àcht dikkerts... dat wordt een schouwspel, vermakelijker dan àl mijn dwergen en narren!
+
+Plots een gefluit als van ontsnappenden wind: om de acht sigma's verontwaardigen zich kluchtig de narren en dwergen... Maar meer wind en meer wind ontsnapt met schril gefluit...: zie, het zijn de met wind opgeblazen lederen kussens der achttallen, wien de dwergen genieperig hebben hun zitplaatsen open gesneden... en de wind ontsnapt, en plat slinken de kussens, en de acht kale manen glinsteren plots omgewenteld; de acht schele oogparen loenschen achterom naar de kussens en duiken dan kluchtig, de voeten naar boven; de dooven worden met de jichtigen handgemeen, maar de dikkerts vormen éen elefantische massa, een heuveling van gezwollen buiken, plooiende magen, vette dijen en ronde koppen, en zij tuimelen links, rechts, over elkaâr... De zon is verzonken; de ontstoken feestvuren en -lichten doen in den bongerd paarsch en scharlaken rimpelen het wijnmeer, waarop de galeien der Naumachie tegen elkander botsen, en over de wankelende sneeuwbergen, koel gestapeld tusschen vijge- en mispelboomen, loopen smeltingen heen van weêrschijn van bloed...
+
+Zie... zie...: wat is dàt? Wat zijn daar, aan de wallen en linksche poort van het zomerpaleis, aan het einde der eucalyptuslaan voor walmingen van flambouwen, die smeren een rossigen smook daar ginds door den zwoelenden volzomernacht: een smook, waardoor heen stuivelt zand en stof, zichtbaar als een òpwaaiende hoos uit woestijn, rozigen bewegelijken nevel en wègkrinkelenden rook, vonk-doorspatterd... als een brand... als een brand, die aan-nadert...? Hoor... hoor...: wat is dàt...? Aangebruisch van stemmen, aangestampel van haastige stappen... honderde stemmen, duizende stappen...: zij komen met de brandwolk mede en het is een aangolving van razernij, van veelvuldige razernij, waarin tronies duidelijk worden en armen graaien en vuisten wapenen dreigzwaaien... Een schelden, een schimpen, een joelen, een jouwen spuwt en spattert aàn tegen de wallen, aan de andere zijde der grachten; plotseling, op de wallen, daar ginds, schetteren militaire bucinae, klaroendaveren centurio-stemmen commando's, en te midden van de schijnsels der feestvuren en -lichten en de aannaderende flambouwen-brandwolk silhouetteeren, tusschen een donker gestreep van stammen en nachtduister gewarrel van bladeren, hel glinsterend de schubbe-figuren der clibanariï, met de lange schildvonken der chrysaspiden en argyraspiden; donkere soldatenkoppen rijen er boven een lange ris van gehelmde rondte; uìt flitsen de lansen, de pila; van de gespannen bogen sist een wemeling van pijlen suisknerpend over de Menigte heen, de in flambouwenbrand aandreigende, -golvende, -stormende, de grachten overbruggende Menigte, de over de wallen heen donkerende Menigte, zich somber vlakkerig mengelend tegen het goudgevonkel der prachtsoldaten, waartegen zij inbeuken, maar tot nog toe te vergeefs... In de tuinen na de eerste rillende verbazìng, ontroering... de paniek! de paniek, die niet weet waarheen en waarom en waartoe: de krankzinnige paniek der gasten, hier, daar, ginds, vliedende, vluchtende, handen geheven, waden verward, dreigend, gillend, smeekend, vloekend, over gestorte tafelen en ingetrapte sigmae, struikelend en strompelend in gebroken glaswerk en vaatwerk omvergebuiteld; een dolle door-een warreling van narren, dwergen en tijgers, waartusschen schreeuwende vrouwen liggen en sterven, de buik vertrapt; Magiërs en priesters, slaven, kinderen en de athleten van de Naumachie, met elkander vèchtende om weg te komen, waarheen weet niemand...; op het Peristylium... de keizer! bleek, angstig, omdat hij dat noòit nog gezien heeft, en niet kon denken of droomen; de gunstelin-gen, vloekend hun noodlot weg willende schuilen in het binnenste van het zomerpaleis...; ginds, de boomen in brand, een sneeuwberg gestort in het wijnmeer en haastig uitsmeltend als een immense vlade van nòg wit in purperscharlaken... En over die verwarring heen en die paniek joelen, veelvuldig, de stemmen der gindsche razernij, waarin duidelijker de tronies grijnzen... jouwen over het gekletter van den strijd heen, die, goudvonkel en schaduwduister, woedt over de vermeesterde wallen... schimpt het Volk Antoninus tegen, en brult, wraakdorstend, om hem:
+
+--- Waar is die? Waàr is Avitus, het hoerekind? Waàr, waar is Sardanapalus? Godendief! Heiligschenner! Hier met hem, hier! Waar verbergt die zijn meidesmoel? Met slijk, met drek zullen wij hem smeren, zoo als hij Alexanders beelden besmeerde! Waar zijn al zijn kerels, die hem bedienen? Nu zullen wij eens zijn kerels bedienen! Stàken, pàlen zullen we ze hun in hun achterste boren!... Wat, moeten jullie hem verdedigen? Wij, wij zullen Alexander verdedigen! Met bijlen, houweelen, hakmessen, hooivorken zullen wij Alexander verdedigen! Met ons bloed, met ons bloed! Willen jullie voor keizer een vent, die een meid is, wij hebben liever Alexander! Heil, heil Alexander! Weg met Helegabalus! Weg met zijn smerige Licht! Weg met zijn zwarte kegel! Weg met al zijn hoereboel! We willen niet meer, we willen niet meer, we willen niet meer den drek van het Oosten! We willen Rome, we willen Alexander! Heil Mammea, en àltijd heil, heil de Eerwaarde Mœza! Wèg met den hoerevent! Waar is die! Hièr met hem! Hièr met zijn meidesmoel! We zullen op hem kotsen en kakken! Hier met hem, hièr!!
+
+Het kind, Antoninus, is bang! Nooit heeft hij zóo het Volk gezien en gehoord, het Volk, dat hem immer aanbad en streelhanden toe naar hem strekte en kushanden toe naar hem wierp! Hij is geweken in het donkere binnenpaleis en daàr heeft hij zich gestort in de armen van Aristomachos, die hem, in ontzetting, nauw aan zich omhelst. En de tribuun fluistert hem toe:
+
+--- Antoninus! Mijn lieveling! Mijn lieveling, blijf hier, hier, achter die gordijnen: ik moèt... ik moèt weg! Ik moèt naar Antiochia-nus: onze troepen zijn trouw... Ze aanbidden je àllen als ik, als wij: wij zùllen... wij zùllen je verdedigen!
+
+Maar het kind klampt zich aan hem vast.
+
+--- Neen Aristomachos... blijf hier! Hoû me vast tegen je aan! Bescherm me, bescherm me: ik ben bàng!
+
+--- Wees dapper, mijn Antoninus! Herinner je: voór Antiochië! Zij hebben het mij àltijd gezegd: je gouden chlamys wuifde! Je draafde de troepen vooruit! Je was een held, je was de Zòn, Antoninus!
+
+--- Ik ben bang, ik ben bang, Aristomachos! Blijf bij me, o goden, blijf bij me! Ze zullen me martelen, me bezoèdelen... me doóden! Aristomachos... hoû me vàst in je armen!!
+
+De tribuun rukt zich los van den rillenden knaap... Hij hoort Antiochianus' commando... De soldatencaligae trampelen, de wapenen kletteren: de legioenen van de Oude Hoop zijn trouw!! Antoninus in de bronszware plooien van het gordijn verbergt zich geheel, nauwlijks puilt zijn slankheid uit... Trouwens, de poort van het paleis, het peristylium is dicht bewaakt... Daar, uitglurend, herkent hij zijn trouwe soldaten! Maar, o, hij is bang, hij rilt, hij klappertandt van een nog ongekenden angst... Antiochië...? Zijn gouden chlamys...? Hij... een held!? Hij herinnert zich vaag die opwinding... Misschien... omdat hij toèn dacht aan Hydaspes... Maar Hydaspes is zoo ver... en denkt nu aan hem slechts ontevreden, met bittere ontevredenheid... omdat hij niet streefde naar het Algoede en het Allichte... En hij weet niet meer... hij is bang: er is niets algoeds en allichts meer: er is alleen zijn doorsidderende angst! Hij is vooral bang, dat zij hem zullen vinden, grijpen, mishandelen en bezoedelen... O, hoe kwaad zijn hun jouwende stemmen! NOOIT heeft hij kunnen denken, droomen, dat zoó kwaad hunne stemmen jouwen zouden tegen hèm... tegen HEM!!
+
+Bijna zwijmt hij in de bronszware plooien. Tot hij plots hoort Antiochianus' stem. Barsch die ruwe soldatenstem van den Praefekt, donderend tegen het jouwen in, te midden van het zwaarden-kletteren, het werpspies-lucht-doorsuizen, het botsen op schilden.
+
+--- ...En wat zoû je willen, zelfs al vertoonde zich genadig de keizer? Wàt zoû je durven, dronken troep, die je bent? Geen haàr van zijn heilig hoofd zoû je krenken durven, want om hem heen zouden dùizenden dadelijk hem wreken! Zijn wij niet duizenden, wij allen, die hem trouw tot den dood zijn? Zoo jullie duizenden zijn, goed, wij vechten man tegen man. Eerbiedigen zullen wij steeds den geliefden Caezar Alexander...
+
+--- Met drèk zijn zijn beelden besmeerd! Dàt is je eerbied, dàt is je eerbied!!
+
+--- ...Eerbiedigen zullen wij steeds den geliefden Caezar Alexander, maar keizer is hij ons niet. Trouw zwoeren wij aan Antoninus, hem, die den geliefdsten naam onzer keizers draagt, hem, den zoon van Bassianus Caracalla, kleinzoon van Septimius Severus...
+
+--- Hoerekind, hoerekind is hij!
+
+--- Dronken volk, zatte troep, schaam je! Het heilige Licht zèlve beleedig je!
+
+--- Het heilige Licht?? Jullie lustjong, jullie lustjong beleedigen wij!
+
+--- Spreek: wat wil je? Wàt wil je? Wat moet deze overval van het zomerverblijf onzer Eeuwigheid? Wat moet deze beleediging tegen zijn persoon en zijn naam? Was hij niet mild? Gaf hij niet congiarius en donativum? Gaf hij geen weelde en geen pracht aan Rome? Gaf hij geen levensblijheid na sombere jaren? Spreek, zatte kinkels, wàt wil je? Den keizer? Om wat hem te doen? Om aan zijn voeten vernietigd te zinken en vergiffenis af te smeeken? Genadig is hij, tè genadig: drònken troep, zóo jullie zonken en vergiffenis smeekten, rijke geschenken nog zoû hij je geven, in zijn genade, zijn te groote genade... Wat wil je, zatte kinkels, spreek dan...? Is Antoninus niet onze god, onze keizer?
+
+--- Wij willen Alexander!
+
+--- En wil Alexander zelve? Wil de ge-eerbiedigde Caezar Antoninus het Imperialaat ontnemen? Noòit zal ik het kunnen gelooven! Waar is dan Alexander, opdat hij het zegt! Maar neen; dronken volk, zatte kinkels, Alexander is op het Palatium, met de drie Verhevene Moeders, en àlle betreuren zij eensgezind de dronken opwinding van de Romeinen!
+
+--- Wie besmeurde Alexanders beelden? Wie stond hem naar zijn leven? Antoninus! Antoninus!
+
+--- Kletspraat van oude wijven!
+
+--- Waarom vertoont zich Antoninus niet met Alexander?! Wij willen Alexander! Wij willen Alexander!
+
+--- Volk van Rome! Quiriten! Wèg, trèkt weg!! Trekt terug van de wallen, zeg ik! Nòg is genadig Antoninus! Nog beval hij niet anders, dan te verslaan, wie weêrstond! Trekt terug, of beter: blijft... en berouwt! Almild is zijn vergevingsgezindheid: roept luid je trouw aan Antoninus uit!
+
+Bijna geheel is de strijd bedaard. Te midden van de te hinnikende paard hem omringende katafractariï, heeft met barsch ruwe soldaten-stem de praefectus-praetorio gedonderd, ìn tegen het gejouw, tegen het zwaarden-kletteren, werpspies-luchtdoorsuizen, het botsen op schilden... Over de wallen, in den flambouwenbrand, liggen de stervenden te kreunen; lijken stapelen de grachten vol; op eén plaats is de gracht met lijken als overbrugd... Vele soldaten zijn neêrgehouwen, maar meerdere van het volk zijn doorspietst, en het is, om des Praefekten woorden, als een wapenstilstand, een kalmeering van razend strijdgebaar, maar niet een kalmeering van woorden... Want tegen Antiochianus' woorden in jouwen, schimpen, schelden die van het volk, tot zij redeneeren, tegenredeneeren, tot stemmen roepen, hier, daar, door elkaâr, velen te zamen:
+
+--- Zeker, Antoninus is mild!
+
+--- Nooit zal Alexander zoo mild zijn!
+
+--- Misschien niet, maar hij is al een màn, zoo klein als hij is...
+
+--- Terwijl Antoninus...
+
+--- Als Alexanders leven veilig is, dan dulden wij nog wel Antoninus...
+
+--- Mild zal hij zeker weêr zijn...
+
+--- Dàn dulden wij Antoninus als keizer weêr!
+
+--- Hem dulden!! dondert Antiochianus. Hem dulden!! De goden dànken, in het stof verzinken, voor de genade van zijn regeering! Heil, heil Antoninus!
+
+--- Heil, heil, Antoninus!
+
+--- Neen, heil Alexander!
+
+--- Wij willen Antoninus wel! Hij is heerlijk om naar te kijken!
+
+--- Ik heb hem nog nooit aangeraakt; als ik hem maar aanraken mocht...
+
+--- Wij willen Antoninus wel! Maar wie wij niet willen, dat zijn zijn mannen!
+
+--- Die schurken!
+
+--- Die ellendelingen! Die kerels, die hem bedienen! Gordus!
+
+--- Murissimus!
+
+--- Protagenes!
+
+--- De Magirus, die kok, Zoticus!
+
+--- Die vuile barbier, Claudius Rufus!...
+
+--- Hierocles, de auriga!
+
+--- Zijn vent, zijn gemaal, ha-ha, zijn Gemaal! Hoeveel Gemalen heeft hij er niet? Die schurken, diè willen we niet! Jij, Antiochianus, bent ook zijn Gemaal! Aristomachos, dat is weêr een Gemaal!
+
+--- Hier met die schoeljes, dat wij ze vermoorden!
+
+--- Hier met Hierocles! Hier met den Gemaal van Antoninus! Gemalen zullen wij hem! Worgen, villen zullen wij den Gemaal!
+
+--- Weg met Antoninus' mannen!
+
+--- Wij willen wel Antoninus: mild is hij en de zoon van Caracalla, maar wij willen niet zijn mannen!
+
+--- Waar zijn ze! Hier met ze! Dat wij ze worgen, dat wij ze villen!!
+
+De drang van het volk wordt onstuimiger, maar niet wil Antiochianus, redelijk en slim, bloed meer vergieten dan noodig is. Zoo zij onstuimiger worden, zullen de troepen van de Oude Hoop hen wel kunnen weêrstaan?... Vooral wanneer achter hun donkere volksmassa aan, Rome, misschien geheél Rome stuwt?? En Antiochianus roept:
+
+--- Volk van Rome, Quiriten, hoort! De keizer verbande al Gordus!
+
+--- Dàt is goed!
+
+--- Protagenes!
+
+--- Dàt is goed!
+
+--- Murissimus!
+
+--- Dàt is goed! Dàt is goed! En Hierocles?
+
+--- Hierocles is Antoninus' Gemaal! roept Antiochianus uit.
+
+Een sissen, een lachen, een fluiten, een schimpen, een jouwen, een joelen, een stuwen onstuimiger en onweêrstaanbaar... De hastati drillen de lansen... Maar hunne centurionen weêrhouden hen...
+
+--- Wèg met Hierocles! Hier met Hierocles! Hierocles juist willen wij bannen! Neen, worgen, villen willen wij hem! Hem zijn vel binnenste-buiten trekken! Kerven willen wij zijn mooie gezicht, ooren afsnijden, neus afsnijden, oogen willen wij hem uitsteken... Hierocles maakt Antoninus gek! Wèg met Hierocles! Hièr met Hierocles! Waar is hij?! Is hij in het paleis? In den tempel? In de tuinen? Wij willen hem zoeken! Wij wìllen hem zoeken!! Wij moèten hem hebben!!!
+
+De hastati houden tegen... De boogschutters schieten... Pijlen sissen: ziel uitschreeuwend vallen getroffenen.
+
+--- Volk van Rome!! dondert Antiochianus. Quiriten!!!
+
+Men hoort hem niet meer. Een oorverdoovend gekrijsch, schril gesis, bulderend geschreeuw is losgebarsten, want op het onverwachts is de keizer, Antoninus, te voorschijn gekomen uit het binnenpaleis, duidelijk zichtbaar op het Peristylium, achter de chrysaspiden, die hem bewaken, duidelijk herkenbaar, hoe bleek hij ook is, hoe hij bevende bang de armen uitsteekt, bang bevende, niet om zich, maar om Hierocles, en hij roept, buiten zichzelven uit:
+
+--- Volk van Rome...!
+
+Zijn stem breekt van angst, eén schelle, schrille smeekende schreeuw.
+
+--- Volk van Rome...! Quiriten! smeekschreeuwt hij, Antiochianus herhalend. Neem mij iedereen af! Gordus! Protagenes! Murissimus! Maar, volk van Rome... o laat mij... laàt mij... Hierocles! Laat mij Hierocles! Spaar mij Hierocles! Dood hem mij niet! Dood liever mijzelven! Ik smeek... ik smeèk om zijn leven! Ik geef... wat ik hèb... om zijn leven!!
+
+Hij is op de knieën gevallen, de handen gestrekt: hij snikt. Maar Aristomachos is hem genaderd, barsch als hij nooit was tegen het kind, dat hij aanbidt:
+
+--- Sta op! beveelt hij ruw.
+
+Ruw rukt hij den keizer op. De knaap, met een gil, zwijmt tegen hem aan, zijn hoofd knakt op Aristomachos' schouder. Het volk heeft niet gehoord... om hun eigen gekrijsch, gesis en gebulder... Er jouwen honderden, maar er juichen ook honderden... Velen meenen, dat de keizer hun Hierocles afstond, om hem te villen, te worgen... Anderen meenen, dat de keizer dronken was, en dat zij geschenken krijgen... Niemand weet meer wat een ander wil... Nauwlijks weten zijzelven, wat zij zijn komen doen... Velen willen naar het Palatium om Alexander tot keizer te roepen, hem te halen hierheen, en, op zijn bevel, Antoninus te vermoorden... Anderen willen, om Mœza, Antoninus geen kwaad doen... De meesten, door de tuinen, dwalen, stelen gouden bekers, zilveren kannen, en werpen zich aan den rand van het vasculum der Naumachie, om den van sneeuw kouden wijn op te slurpen... Zij liggen als beesten lang-uit naast elkaâr rondom den vijver, en drinken zich zat... Zij verdrinken in den wijn... Een groot gedeelte der tuinen brandt: de knetterende boomen zijn als reuzeflambouwen... Over de Campania vaalbleekt de morgen...
+
+In het paleis houden zich de gunstelingen verscholen, razend, dat Antiochianus hen, op Hierocles na, heeft verloochend. De keizer, bezwijmd, maar gered, is door Aristomachos, op diens armen, in zijn eigen kamer gebracht; de tribuun laat hem daar over aan Narr, en de te zamen gevluchte vrouwen... Alle toegang van het paleis is bewaakt door de Praetorianen... Velen van het volk trekken terug, schreeuwende, scheldende tegen elkaâr, oneèns in opgewonden luidstemmig beweeg, dat verijlt naar Rome toe... Als Aristomachos terug tot Antiochianus keert, zegt de Praefekt:
+
+--- Wij hebben Antoninus gered... maar Alexianus LEEFT NOG VAN NACHT!!
+
+## 6\.
+
+O, die nacht, die afschuwelijke nacht! De zwoele volzomernacht, het van volzomerzwoelte bijna nevelige nachteluchtblauw vol sterren, die door warmte heen zonder glans schijnen te starrelen, en onder die glanslooze starrelucht de afschuwelijke nacht op het Palatium! Niemand, die slaapt! Voor de vertrekken van Mammea en Alexander waakt, geheel wakker, de wacht van Encolpius, maar ook verder om het Palatium heen, voor de area der Flavische paleizen, voor de bogen van het Septimiesch paleis, in den toren van het Septizonium waken de wachten en troepen en zien uit in den nacht en weten niet goed, in de onbeslistheid hunner eigen soldatenmeening. Maar Semiamira --- o hoe lange wachtte zij niet te vergeefs op Aristomachos, die komen zoû met zijn soldaten, om Alexianus èindelijk te dooden! --- Semiamira, met een vloek en gebalde vuist is langs Encolpius' wacht gesneld naar de vertrekken van Mœza, en daar zij de Moeder niet vindt, ijlt zij het Keizerinnehof door en nadert Mammea's kameren, waar zij waarlijk de Grootmoeder treft, in den nacht wakker, met het snotjong en zijn gehate moeder... Een schrik, als de Augusta bijna binnen vàlt door den voorhang, en Mammea, opgestaan, beschermt Alexander met opengespreide armen... Encolpius, waakzaam, verschijnt met zijn wacht, op den drempel, vlàk achter Semiamira, die hij wantrouwt... Maar de moeder van Antoninus lacht bitter om hun schrik, en zij roept:
+
+--- Moeder! Moeder!! Kom toch! Ik weet niet wat er gebeurt... maar onraad is er zeer zeker! Niemand kan mij zeggen, wàt er gebeurt, maar zeker gebeuren er dingen! Overal om het Paleis zie ik hastati, zie ik veliten, en zij zijn niet de gewone Paleiswacht, en ik begrijp niet, wie ze verzamelt! Het Septizonium is verlicht! Stemmen van volk bruischen aan in den nacht! Moeder! Kom toch buiten! Ik ben bang, ik ben bàng voor mijn zoon Antoninus! O, zeker zijn het dié twée --- daar! --- Mammea en haar bastaard Alexianus --- zeker zijn het die twee, die samenzweren tegen mijn Antoninus!
+
+--- Zoo jij het niet bent, zoo jij het niet bent, die met Antoninus staat naar het leven van MIJN kind!! roept Mammea, sidderend van angst en van woede.
+
+--- Sœmis! Mammea! gilt Mœza. O, haàt elkander toch niet! Heb ik niet dochteren twee, beide lief, heb ik niet kleinzonen twee...?
+
+--- Maar Antoninus meer lief dan mijn Alexander! roept Mammea.
+
+--- Is hij niet de oudste, maar heb ik Alexander, dien ik zoo even omhelsde, niet lief, en zal ik hem niet beschermen...??
+
+--- Moeder! smeekt Semiamira. Kom meê! Kom naar buiten!! Bàng ben ik voor Antoninus! Wat gebeurt er! Ik vrees duizend dingen en weet niets! Moeder, o Moeder, ga meê, ga met mij meê naar de Oude Hoop...!
+
+Zij sleept de oude vrouw meê; achterom vloekt zij tegen Mammea, schimpt zij tegen Alexander. Door de zalen van het Vrouwenhof ijlen Semiamira en Mœza, door de atria, tot in de tuinen, de parken, om uit te hooren naar den nacht... om toch uit te zien naar wat er dreigt... Hoor, hoor, een geruisch als van zee! Dat is het volk, dat is het Volk, dat is het Volk van Rome! Wat wil het en waar stuwt het heen, in de richting der Porta Asinaria?! O, het stuwt naar de Oude Hoop! Plots, in die richting, daar ginds, blaakt een rosse weêrschijn van brand.
+
+--- Moeder!! schreeuwt Semiamira. O, zie!!! Het brandt daar ginds! Het is het zomerpaleis, dat brandt! Moeder, o hèlp! Bescherm mijn zoon Antoninus!!
+
+De oude vrouw staat verbijsterd eén oogenblik... en weet niet wat te gelooven... Zij herinnert zich Mammea's angsten zoo even... Zij wantrouwt nu Semiamira's angsten... Zij weifelt, maar eindelijk toch beslist zij en roept uit:
+
+--- Sœmis! Sœmis! Dat is krijgslist! Is dat niet vervloekte krijgslist van jou, met Antoninus, met Antoninus samen?! Krijgslist om mij weg van het Palatium te krijgen? Krijgslist om de handen hier vrij te hebben en met Alexander jullie wil te doen?!
+
+--- Neen, Moeder! bezweert Semiamira. Het is geen krijgslist! Ik weet van niets! Het is het Volk, dat tegen Antoninus trekt, het Volk, dat het paleis ginds in brand steekt!!
+
+Donkerder, dichter, dreigender zwermt om den Palatinus de Menigte aan, en Mœza weet niet of zij stuwt naar de Hoop, of dat zij aanschuimt rondom het Palatium... Maar, hoe zeer zij Antoninus ook lief heeft... vòl vrees is zij dezen nacht om Alexander! Wàt komt al dat volk doen! Alexander vermoorden?! En zij stoot Semiamira van zich, laat haar donkere palla in dier greep achter en ijlt weg, de oude vrouw, ijlt terug naar het Keizerinnehof... Alle cubiculariï, vrijgelatenen, slaven, slavinnen, soldaten der wachten zijn daar, gedrongen op elkaâr, voór de vertrekken des Caezars, in een verwarring-wemelende menigte... Mœza stort binnen... Zij herademt, als zij Alexander in zijn moeders armen ziet, en zij roept, beveelt, ontzagwekkend:
+
+--- Waak, Encolpius, waak! Waakt, troepen, waakt! Het Volk zwermt aan, ik weet niet waarom... Over de Oude Hoop is weêrschijn van brand! Maar Antoninus heeft daar Antiochianus, Aristomachos, de Praetorianen...: voor hèm vrees ik niet! Ik vrees voor den Caezar! Zet-af alle toegang! Bescherm den Caezar, verdedig zijn leven!!
+
+Zelve slaat om het kind zij haar armen, nijdig weêrstrevend de stevige knaap in die nerveuze omhelzing, fronsend de knippende oogen in zijn gelaat, dat tòch vragend opziet naar zijn moeder Mammea, zonder wie hij niets weet te zeggen, bijna niet weet te voelen... Bang is hij zeker niet, maar in zijn dompe ziel is hij besluiteloos, zelfs in gevoelen, traag in gedachte, zonder impulsie... De omhelzingen der Moeders vervelen hem, en wèl zoû hij gaarne naar buiten willen, want in hem wekt zich iets van eerzucht en moed. Maar toch eerst zoû hij moeten weten of zijn moeder dien moed op dit oogenblik goedkeurt, en die eerzucht van nacht wel wenscht. Daar hij niet weet en niet vragen wil, zwijgt hij, ontevreden, en fronst. Zijn knapelichaam is door athletische oefening gespierd en ontwikkeld, frisch is zijn wat plomp gehouwen jongensgezicht, maar onder zijn fronsende brauwen blijven zijn boos grauwe oogen zonder inniger lichtender vonk. Een stompe besluiteloosheid waast heen over zijn heel merkbare ontevredenheid en hij maakt zich uit de armen van Mœza los.
+
+In het atrium van het Keizerinnehof is Semiamira alleen gebleven... Zij is geheel alleen: wijd tusschen die in den nacht wègzuilende ruimten is de eenzaamheid om haar heen... Allen zijn ginds, om Mammea en Alexander... Maar daar in de verte is de rosse weêrschijn, dien zij niet begrijpt... Angst klopt in haar slapen, haar hart, doet haar hijgen... Wàt is er gebeurd? Oproer zeker! Aristomachos is niet gekomen, als toch was afgesproken... Tot Alexianus' dood was van nacht, nà middernacht, besloten... trots alles wat Mœza zoû willen verhinderen... En nu, làng is het al middernacht geweest... Aristomachos blijft weg... en ginds --- toch in de richting der Porta Asinaria?? --- is een weêrschijn, een weêrschijn van brand!!
+
+Zij is radeloos, om haar verlatenheid... Waar zijn haar cubiculariï, haar vrijgelatenen, haar centurionen, haar wacht, de drom van haar slaven...? Misschien om haar eigen vertrekken? Verspreid, in verwarring... overloopende naar die massa, die daar hevig gebaart in luidruchtig gepraat om de kameren van Alexianus, Mammea...? Zij wil niet terug naar het Keizerinnehof, waarheen Mœza terug is gevloden... Zij wil wèg, naar de Oude Hoop! Zij wil naar haar zoon! Haar zoon, haar god, Antoninus! Zij baarde een god, Helegabalus! Zij heeft haar kind lief, als zij nooit had vermoed! Haar heerlijk kind, dat zij aanbidt! Zij wil naar de Oude Hoop! Maar hoè komt zij er! De afstand is ver, en in den nacht, òm den Palatinus, zwermt dichter het Volk en duisterer, dreigender... O zij begrijpt nu: oproer is uitgebroken tegen haar kind: ginds brandt de Oude Hoop!! Zij wil weg, zij moèt weg... Zij kàn niet... Het Palatium kan zij nog uit, maar dwars door die aanduisterende zee van volk... Dat golft, klotst, schuimt onder om den Palatinus aan! Dat roept, dat schreeuwt:
+
+--- Alexander! Heil Alexander! Heil Mammea! En àltijd heil de Verhevene Mœza!! Alexander! Wij willen Alexander!!
+
+Zij roepen het snotjong uit! Het gehate kreng en zijn kreng van een moeder! O goden, wat zal er daar ginds met haar zoon gebeuren! Ja, hij heeft om zich heen Antiochianus, Aristomachos, de Praetorianen, maar wat zullen de troepen doen van het Kamp, het immense leger van de Castra aan de Via Nomentana! Zullen zij zijn voor haar zoon... of voor het snotjong!? O, zoo zij haar kind maar bereiken kon! Antoninus! Antoninus! Zij strekt naar hem haar armen uit! Haar lief kind! Als zij hem maar niet vermoorden!! Zoo ver is hij van hare omhelzing! Nooit heeft zij zich zoo moeder geweten! Als een krankzinnige dwaalt zij rond, ijlt zij de verlaten tuinen door, ziet op de hoogste parkheuvelen uit... Zij loopt, wringt de handen, zij snikt, zij verlangt, zij smacht, zij roept hard op! Zij wil weg, naar hem toe, het koste wat het koste... Niemand is om haar; alleen zal zij gaan! Alleen zal zij gaan door het volk, alleen waden door de zwarte zee, die daar dreigende aangolft, klotst, schuimt tegen het Palatium aan. Is zij niet dapper? Is zij niet een heldin geweest, voor Antiochië, tegen Macrinus' troepen haar eigen troepen, al weifelend, aanvurende tot overwinning, voor haar zoon? O neen, zij is niet meer bang: zij is een Dochter der Zon: plotse, helle energieën, een leeuwinnekracht van moederlijkheid geeft haar overmoed: zij zal gaan, zij zal gaan... door het Volk! Zij zal haar jong beschermen, hem beschermen met haar eigen lijf, haar altijd brandende liefdevrouwlijf, haar lijf nu rillend van moederlijkheid... En zij ijlt in de richting der poorten... Zij daalt de parkheuvelen af, zij snelt door neêrtredende zuilengangen omneêr; daár, in ontroering, waken de wachten.
+
+--- Centurio... centurio!
+
+--- Wie daar?
+
+--- De Augusta, Semiamira! Ik wil er uit Ik wil het Paleis uit!
+
+--- De Augusta!!
+
+--- Ja, de Augusta: IK, Semiamira! Ik wil er uit! Ik wil naar den keizer! Ik wil naar mijn zoon! Laat mij door!
+
+--- Augusta, Rome is in opstand! Zwart is het plein van volk: zij roepen om Alexander!
+
+--- Centurio, ben je trouw aan mijn kind?
+
+--- Ik ben trouw, Augusta, zoo lang de Caezar veilig kan zijn voor de lagen van Hierocles.
+
+--- Hij is veilig, maar hij is veilig, centurio! De Caezar? Maar de Caezar is veilig! Zijne Goddelijkheid heeft den Gemaal verbannen! Wist je dat niet? Verbannen is die ellendige Kariër en zeker wordt Aristomachos naar zijn ballingsoord heengezonden, om hem te bevelen zich te doorsteken! De Caezar? Maar de Caezar is veilig! Ze zijn daar allen rondom hem heen! Maar ik ben angstig, om mijn zoòn! Ik wil naar hem toe... Ik wil naar de Oude Hoop!
+
+--- Te voet, Augusta...? Zonder geleide...?
+
+--- Niemand zal mij herkennen... Zie, ik heb een bruine palla... Laat mij door, centurio: ik beveel!
+
+--- Ga dan, Augusta: mogen u de goden beschermen! Hier, twee legionariï zullen u leiden...
+
+De Augusta slipt door vermomd... De poort van het Palatium uit is zij dadelijk in de Menigte verzwolgen... Dadelijk verliest zij de twee legionariï... Wat deeren zij haar! Zij wil liever alleen naar haar zoon... Zij dringt, zij duwt zich een doorweg... Zij is midden in de golven der dreigende zee...
+
+--- Wij willen Alexander! Heil, heil Alexander! Waar is Alexander? Waàr is Alexander?
+
+O, zij roepen het snotjong uit! Zij krimpt van haat en zij kreunt van wanhoop, angst, razernij... Zij wil door... Zij is een van het volk nu, zij slipt hier, zij slipt daar... Mannehanden graaien haar borsten... Grove smoelen lustsmakken haar tegen... Zij wringt zich los, duwt, zij scheldt, zij vloekt: zij kàn wel als een meid schelden en vloeken, de Augusta, die dat 's nachts in de Subura leerde. Wie, die in haar een keizerin nu vermoedt! Met de armen breed-uit maakt zij een weg zich, dwars in tegen de aanstroomende volkszee, zwart golvende, schreeuwruischende om den Palatinus heen. Plotseling... trekt zij dichter om zich de palla... Stemmen heeft zij herkend... vlàk bij zich... Een slip trekt zij al nauwer zich over het hoofd, en, hoewel zij smacht naar haar zoon, wil zij hooren, wat die bekende stemmen zoo schreeuwen. Het zijn een dikke man en een magere, en de dikke roept tusschen een groep van gladiatoren en legionariï, ontsnapt aan het Kamp:
+
+--- Alexander... dien moesten we hebben! Alexander is ook wel een Syriër, maar Alexander is toch veel meer Romein! Ik? Ik ben een Romein, Romeinsch burger ben ik, hoor: senator! Ik mag niet in Rome zijn: Sardanapalus heeft heel den Senaat weg uit Rome gezonden --- op giraffen, op ezels, in tonnen zijn ze uit Rome weg moeten vluchten! Ik? Ik ben niet gegaan. Ik heb met àl de Christenen mijn hoop op Alexander gesteld! Die zal ons een tempel wel geven!
+
+--- Mijn vriend Matthias? Die is een Romein! Een Christen, maar een Romein! Zeker niet is hij een Jood! Ik? Ik ben een Romein! Wel neen... mijn moeder alleen was een Indische vrouw... Ik ben wel aan den Ganges geweest, maar ik ben een Romein, een Romein! Ja, Rome moest Romeinsch weêr worden! Rome, het lijkt wel Perzië! Dat heeft Sardanapalus gedaan! Bedrogen heeft hij ons allemaal! Het heilige Licht...? Onzin! Avitus heeft de lui betooverd! Ze dachten van hem te eten, van hem te drinken, van hem te leven... en ze stièrven van hònger en dòrst... of ze kwamen om door serpenten en schorpioenen, die hij ze in vazen schonk als tafelgeschenk!! Ja, Alexander, dien moesten we hebben! Die zoû een verstandig, mild keizer zijn! Antoninus? Die heeft geen as! Alexander, dìe erft het geld; Alexander, diè is Mœza's lieveling! Heil, heil Alexander! Hier...: als je hem uitroept... dan krijg je geld: hier! Alexander! Heil Alexander! Alexander, dien willen we hebben!
+
+Semiamira is hen genaderd: Matthias, de vir-clarissimus, de senator, ex-bordeel- en -kroeghouder, ex-Christen: neen, Christen is hij nu weêr... Onder zijn groep gladiatoren en legionariï schijnen Christenen, donker gekleed, wie hij een tempel belooft, wanneer zij Alexander uitroepen... En dan Ganadasa, de Gymnosofist; zij beiden eerst door Mœza gewonnen om in Emessa Antoninus uit te doen roepen; zij beiden nu door Mammea zeker bewerkt om het Volk gunstig voor haar snotjong te stemmen!! Een ziedende haat borrelt in de Augusta op --- zij herdenkt Emessa, en zij walgt van hun trouweloosheid! --- en plotseling, genaderd, dicht omhuifd in donkeren mantelslip, fluistert zij, doffer dan gewoonlijk hare stem gedempt:
+
+--- Matthias...
+
+De dikke senator kijkt om, laatdunkend, niet wetende welke vrouw hem daar roept... Hij herkent Semiamira niet... haar, wie hij ginds in Emessa toch dikwijls zijn kroeg, zijn bordeel des nachts de zijdeur ge-opend heeft, opdat zij, de Moeder des Hoogepriesters, zich als een deerne gaf aan de soldaten... Hij herkent haar niet en zij dringt, dof hare stem:
+
+--- Matthias... Ik kom van het Palatium... De Serenissima Mammea zendt mij...
+
+--- Wie ben je?
+
+--- Een van hare slavinnen... Waar is je draagstoel...?
+
+--- Dichtbij, daar ginds... Wat moet je?
+
+--- Je voeren tot de Serenissima... Kom!!
+
+Zoo overtuigend strekt hare hand zij uit, dat hij die grijpt...
+
+--- Daár is mijn draagstoel... ginds! Ik ben dik, het loopen is mij heel moeilijk... De menigte plet mij mijn buik plat... Maar ik heb het óver, voor Alexander!
+
+Aan hare hand, zij dof vloekende, dringduwende, heeft zij hem gevoerd door de deinend klotsende volkszee zwart, in de richting, die hij haar wees... buìten de menigte...
+
+--- Ellendeling!! krijscht zij plots hem in zijn tronie; haar oogen flitsvonkelen in de zijne; de slip valt van haar kruin.
+
+--- Goden!! schrikt hij uit. De Augusta Semiamira!
+
+--- Ellendeling! Stinkende Christenhond! Waarom ben je ontrouw aan Antoninus??
+
+--- Waarom? schuimbekt hij plots van haat. Tien morsdoode muilezels gaf hij mij!
+
+De Augusta, in een wilden schater, barst uit.
+
+--- Tien morsdoode muilezels! Erger stink je dan zij! Je bent ze niet waard... tenzij je tienmaal zoo morsdood bent als je ezels!!
+
+Hare hand heft zich kort, vlug, krachtig; een dolk flitst; zij priemt hem recht diep door het hart... Hoe heeft zij zonder aarzeling gemikt! Nauwlijks heeft hij gesteund; hij stort als een zware massa neêr aan haar voeten... Zij bukt zich, trekt uit haar dolk, veegt dien af aan zijn eigen penula, ijlt weg...
+
+Wèg wil zij, naar de Oude Hoop! Keelslokkende als na gekoelde dorst, blij om haar wraak... maar bang, zoo bàng om Antoninus!! Daar stuit zij op een bandelooze troep legionariï, en die sleepen haar meê... terug... in de richting van het Palatium! O, zij zal Antoninus nooit bereiken! O, het is een booze droom; zij bereikt hem nooit! Het is als of zij hem nooit bereiken zal... zoo zij niet àl dat volk rondom zich doorpriemt!! Werktuigelijk, rood ziende in den donkeren nacht --- glansloos oogelt de te zwoele starhemel --- tast zij opnieuw naar haar dolk... O, wat roepen zij het snotjong uit! Wat al kreten van gejuich en toegejubel! Zij kràtsen haar door de ziel, ze snijden haar dwars door het hart! Zij kan dien naam: Alexander! niet hooren... Hoor, hoe zij bulderen, bulken! Het is als een blijde storm, die oploeit voor de arkaden en hooge balkons van het Septimiesch Paleis, daar waar des Caezars vertrekken zijn, niet ver van hare eigene, in het Keizerinnehof! O hoe zij naar het snotjong smachten! Om het te zien, toe te juichen, uit te roepen, misschien! Tot keizer?? In plaats van Antoninus!! O, zij snikhuilt van machteloosheid. Haar kind, de schat van haar schoot, de parel van haar moederlijkheid, den god, dien zij heeft mogen baren... zijn zij ontrouw! Hoe is het hun mogelijk, dat zij het zijn! Voor dat snotjong, voor dat kreng, zijn moeder een kreng als hij! Goden! Goden!! Verschijnt hij daar?! Flambouwenflakkering in de hooge zalen daar ginds, het balkon ge-opend, de argyraspiden van de Paleiswacht, --- de ellendelingen! --- die om het kreng zich scharen zullen... Mammea... Wàt ziet zij? Mœza?? Ja, Mœza... Mœza naast Mammea... en tusschen haar beiden het kleine kreng!! Ellendelingen! Ellendelingen! Hoe zij juichen, hoe zij jubelen... Alexander! Heil de Caezar! roepen zij...
+
+--- Heil Aurelius Alexander Caezar Augustus!!
+
+Augustus?? Roepen zij Augustus?? O, de laffe ellendelingen! En kan Moeder dat dulden! O, zij had niet moeten gaan, zij had daàr moeten blijven, om haar zoon daàr te verdedigen! Ginds heeft hij Aristomachos, Antiochianus! Hier heeft hij niemand! Hier herdenkt niemand hem meer! Zij roepen het snotjong uit, het snotjong in de plaats van Antoninus! Gebeurt dan ooit de onmogelijkheid! Hebben zij dan niet meer Antoninus lief, wien zij eens den grond hebben gelikt, waarover hij trad! Zelfs Mœza, heeft zij Antoninus niet lief meer! Nu kàn zij dat niet langer aanzien... Nu wendt zij zich af, maar wéêr stuit zij op het toegolvende volk, zwarte zee, die den Palatinus omklotst... Wat gebeurt, o wàt gebeurt er toch! Hoe zal het met haar zoon zijn daarginds! Haar kind! Den god, dien zij baarde! Het volk is tegen de Paleiswacht en de poort opgedrongen, altijd uitroepende: Aurelius! Alexander! Caezar! Augustus! en àl dat volk zwermt den Palatinus om, op, de parken in, naar het Palatium!
+
+--- Heil Aurelius Alexander Caezar Augustus! Heil! Beschermen zullen wij hem, als zijn eigen wachten vertrouwd niet zijn! Wij, zijn volk zullen hem beschermen voor de haat van Sardanapalus, voor de lagen van Hierocles! Naar het Kamp! Naar het Kàamp, de Caezar Augustus! Met de Moeders, Mœza, Mammea brengen wij hem naar het Kamp, opdat hij veilig is tusschen zijn Leger! Naar de Castra, de Caezar Augustus! Het Leger moèt Alexander huldigen! Wèg met Antiochianus! Wèg met Sardanapalus!!
+
+Goden, Antoninus wordt zeker vermoord! Naar de Hoop, zij moèt naar de Hoop! Nu duwt zij en dringt als een razende dwars door die volksmassa's door... Niemand herkent haar... Wie let op een dringende, duwende, scheldende, vloekende deerne, zeker uit nieuwsgierigheid uit de Subura aangedwaald en verzwolgen in de roerige Menigte? Een bende gladiatoren bònst tegen haar op, maar zij blijft op de been, en zelfs een oogenblik weet zij meê grof te schertsen, laat zich pakken en graaien en weet juist om haar toegevendheid zich los van de kerels te maken en nu voort te slippen, te schieten door de daar verder-op al verijlende Menigte... Zij ziet om naar den Palatinus... Er smeren flambouwen ros walmend door de parken heen... Er wriemelen zwarte massa's naar het Palatium toe... Het Volk is in het Palatium! Dat ellendige Volk haalt Alexianus weg, schaakt hem met zijn moeder en grootmoeder mede, om hen veilig naar het Kamp te brengen! O van nacht LEEFT ALEXIANUS NOG! Maar hij moet doòd, hij moet doòd! Goden, als Antoninus nog veilig maar is! Nu... door de Menigte uit... kan zij ijlen... De palla om zich vast, ijlt zij voort... Naar de Oude Hoop! Is er geen weêrschijn van brand meer? Is de brand dan gedoofd, of vergiste zij zich... O, Helegabalus, hoè zal zij Antoninus vinden! Wàat zal daar gebeurd zijn! Zij ijlt... Zie, daar verbleekt al de nacht; eerste morgengrauwte, nauwlijks dauwverfrischt, bleekelt op, maar onadembaar zwoel blijft de lucht... Nog eénmaal heeft zij zoo geloopen... met krachten... als buiten haarzelve... eénmaal... voór Antiochië, toen zij de troepen van haar zoon terughield van smaadlijke vlucht, die alles zoû hebben verliezen doen...
+
+Zij nadert en bijna is zij verbaasd, als zij de tempelgebouwen en het zomerpaleis van de Oude Hoop ziet opzuilen en -bogen tegen de klaardere grauwte des morgens, maar nu merkt zij ook... dat een gedeelte der parken verbrand is... Zij ziet op de wallen de wachten heen en weêr loopen... en àl bliksemen hun lange lansen op en schieten bleeke vonken hun schilden... Dat stelt haar gerust: o, Antoninus moèt zijn ongedeerd! Nu is zij op het voorplein... nu nadert zij de brug over de gracht... nu roept zij tot den centurio daar:
+
+--- Centurio! Centurio!
+
+--- Wie daar?
+
+--- Ik, de Augusta...
+
+--- Goden! De Augusta Semiamira?!
+
+--- De keizer?? roept zij. Antoninus? Spreek, spreek, centurio...
+
+--- Wij hebben over zijne Goddelijkheid gewaakt, Augusta... Er is den keizer geen haar gekrenkt...
+
+--- Dank, dànk, centurio!!
+
+Zij heeft een gil van vreugde geschreeuwd: zij loopt door de eucalyptuslaan, zij loopt door de tuinen om... Wat een verwarring! Zwart roetrookerig de verkoolde boomen en daar onder de vertrapte wanorde van het gestoorde festijn: lijken van vrouwen in feestgewaad... lijken van leeuwen en narren... in den vijver der Naumachie --- is het wijn, is het bloed?! --- de gezwollene tronies der verdronkene beschonkenen... gouden vaatwerk vertreden... rooskleurig glaswerk in gruizel... omver gevallen geurvaten, waarvan de aromaten nòg walmen... Vreemd: uit het binnenpaleis... uit den tempel... klinkt een begeleiding van harpen... hoort zij de bassige stemmen der Magiërs eentoniglijk brommen...
+
+Zij stort, zij vàlt bijna binnen.
+
+--- Antoninus! Mijn kind!! schreeuwt zij uit.
+
+Aristomachos ziet zij het eerst: hij houdt haar staande, met een gebaar om haar te doen zwijgen... Zij staat, plots bewegingloos; staart... De tempel is donker in morgengrauwte: lichten zijn niet ontstoken... Maar zij ziet Antoninus: hij hangt in omhelzing om den Zwarten Steen, waartegen zijn zoenen plakken... Zijn ziel zweeft weg in extaze... Op twee outeren kreunelen twee zuigelingen tusschen de groote handen van Magiërs... En twee Oppermagiërs, plots, mikken de snede, te gelijker tijd, de offermessen flitselen; een kreet, bloed fonteint dunnetjes op --- en zij ontlichten aan de lillende lijfjes het ingewand en spreiden het uit op gouden schaal... De tempel --- nu ziet, gewend aan den schemer, Semiamira --- is vòl: o, véle aanhangeren heeft nog haar zoon! Zijn zaak kàn nog verloren niet zijn! Als eerst het snotjong maar doòd is!!
+
+En na haar radelooze wanhoop, na haar hier plots uitgeschreeuwde blijdschap, vervult haar een godsdienstige huiver, rilt een mystieke siddering haar door de ziel, haar, Dochter der Zon! Haar zoon... daar ginds... de schat van haar schoot... de parel van hare moederlijkheid... haar zoon is een gòd... weêrgeboren... gebaard uit haar liefdelijf... Haar zoon is Helegabalus... en zij werd door het Licht waardig gekeurd... Helegabalus te ontvangen: ontvangenis van stràlenden glans... Nauwlijks durft zij hem naderen, hoewel zij recht heeft... En zij valt ter aarde, in huiver en siddering; zij buigt over de vloersteenen het hoofd, waarom heur haar is verward... en zij bidt mede... met de Litanie der Magiërs:
+
+--- God, o groote God; groote, onverwinlijke God; groot, onoverwinlijk Licht; onoverwinlijk onuitsprekelijk Licht; Bron van Licht, die ontwelt op den Berg van Licht... Gij, die in hem zijt neêrgevonkeld... Geef hem de zekerheid zijner aardsche macht met de verdelging van alle zijn vijanden... God, o groote God, Gij, die in hem zijt neêrgevonkeld...
+
+--- ...Maar die ik weet, dat ik slechts ten deele ben...! valt Antoninus' zangerige stem hoog-zacht in.
+
+--- ...Geef hem de zekerheid...
+
+--- Zijne aardsche macht...
+
+--- En verdelg hem...
+
+--- Alexianus!!!
+
+--- Verdelg hem Alexianus!!!
+
+## 7\.
+
+O, die nacht, die vervoerende nacht voor de Serenissima Mammea! Het Volk heeft om haar Alexander geroepen, vertoond heeft hij zich op het balkon tusschen haar en Mœza zelve... het Volk heeft Augustus hem uitgeroepen! En nu, uit het zwart krioelende volk, dat den Palatinus is opgedrongen, dat het Palatium is binnengedrongen, komt uit die verwarring getreden Fulvius, de Praefekt van Rome, de aanhanger van Antoninus! naar het atrium, waar in hevigste opgewondenheid van officieren en hoftrawanten de Moeders terug zijn gekeerd met den Caezar ---: Fulvius, door het Volk gezonden, en bang voor zijn leven, zoo hij niet aan hun uitgeschreeuwde wenschen voldoet... en hij zegt:
+
+--- Clarissima... Het Volk van Rome verlangt... Het verlangt, om de veiligheid van den Caezar, dat hij zich met ùzelve en de Serenissima... begeve naar het Kamp...
+
+Maar de Clarissima, in hare zwaar gele zijden, goudpalm-bestikte palla, richt zich op, in geheel hare autoritaire vorstelijkheid, en zij zegt:
+
+--- Het Volk van Rome verlangt? Het eìscht? Het verlangt en het eischt wellicht allerverstandigste dingen, want zeker is de Caezar, trots zijn bewaking, op het Palatium niet meer veilig. Maar voor wie is hij niet veilig! Voor een bende onwaardigen, die de keizer met genade overstelpt heeft, tot van nacht toe, Fulvius, en niet langer! Verstaat het Volk van Rome dàt? De Caezar is Caezar, Fulvius, maar de Caezar is niet Augustus!
+
+--- Clarissima...
+
+--- De Caezar is NIET Augustus!! roept heftig de oude Mœza, opvlammend in haar gele palla in het valsche licht van vroegsten morgen en nòg brandende nachtflambouwen. De Caezar is niet Augustus! En de Caezar verlangt niet het te zijn! Hij is trouw aan Zijne Goddelijkheid, Antoninus! Hij verlangt niet de heiligheid van zijn keizerlijken neef te schenden, zoo als het Volk van Rome die van nacht heeft geschonden! Fulvius, weet het Volk van Rome niet, dat eensgezindheid en liefde heerschen tusschen Zijne Goddelijkheid en den Caezar, zoo zeg het hun eerst, vóor ik tot veiligheid van den Caezar, Alexander naar het kamp vergezel! Zeg het hun, zeg het hun, dadelijk! Dat ik niet meer hoore roepen: Augustus! Antoninus, Antoninus is Augustus! Is de keizer aansprakelijk voor wat een bende, die de overstelping van zijn genade niet heeft kunnen verdragen, in het duister samenzweert? En vergeet het Volk van Rome, omdat het Alexander bemint, zijn gezworen trouw en zijn liefde voor Antoninus?
+
+--- Clarissima...
+
+--- Ga, dadelijk, Fulvius! Zeg het hun! Laat het uitroepen! Laat dadelijk mijn wil worden bekend! En laat het Volk oogenblikkelijk het Palatium, den Palatinus verlaten! Is dit de overval van een belegerde stad in den nacht!! Ga, ga, Fulvius, dadelijk!!
+
+Zij wijst hem weg; hij gaat, tusschen zijn lictoren, bàng voor zijn leven. En zij hoort hem roepen:
+
+--- Volk van Rome...! Quiriten...! Hoort de wil van de Clarissima Mœza, de Eerwaarde Moeder, Grootmoeder van Zijne Heiligheid, den keizer Antoninus Augustus!
+
+--- Alexànder, Alexànder Augustus!!
+
+--- De Caezar is niet Augustus! Niet verlangt de Caezar Augustus te zijn! Alexander is trouw aan Zijne Goddelijkheid, Antoninus! Hij verlangt niet Zijne Heiligheid te schenden, zoo als het Volk van Rome hem van nacht heeft geschonden!
+
+Mœza, die geluisterd heeft, wenkt een vertrouwden eunuch... Maar Mammea, stralende, zegt:
+
+--- Moeder, o Moeder! Gaan wij nù naar het Kamp??
+
+Mœza ziet haar vast in de oogen.
+
+--- Wij gaan naar het Kamp, Mammea, opdat Alexander veilig is voor de lagen van... Hierocles! Voor de bende! Maar ik ga niet, voor dat ik zeker ben, dat Antiochianus, als praefectus-praetorio, ons in het Kamp kan ontvangen, in naam van den keizer, van Antoninus. Daarom zend ik boodschap naar de Hoop...
+
+--- Moeder! Moeder! U weet toch, dat Antoninus zèlve --- nièt zijn gunstelingen alleen! --- Alexander naar het leven staat!
+
+--- Ik weet, dat ik twee dochters heb en twee kleinzonen: een keizer en een Caezar! Ik weet, Mammea, dat IK het niet zijn zal, die Antoninus ontrouw zal zijn, wie het ook zij, wie het ook zij! Als Alexander is hij het bloed van mijn bloed! Naar het Kamp zullen wij gaan, maar niet eer ik verzekerd ben, dat daàr... mij Antiochianus ontvangt, uit naam van mijn kleinzoon Antoninus... Wij vluchten niet met een verwarde horde meê... Wij vluchten niet voor Antoninus... Wij gaan naar des keizers eigen Kamp, opdat Alexander veilig is voor Hierocles...
+
+--- Voor Hierocles niet alleen!
+
+--- Voor de bende... Hoor, Psammeticus!
+
+Zij fluistert snel tot den eunuch:
+
+--- Neem een draagstoel... twaalf loopers, dat gaat vlug... Een wacht Praetorianen... Ga naar de Hoop... Zeg Antiochianus, dat hij dadelijk naar het Kamp vertrekt... met drie thurmae katafractariï... Dat Aristomachos bij den keizer blijft waken... Dat de gunstelingen zich niet vertoonen, vooral niet Hierocles... Dat, zoo de keizer hen niet aanstonds verbannen kan, zij zich niet van nacht, morgen, dezer dagen vertoonen... Dat zij zich op de Hoop blijven verbergen... Zeg Antoninus mijn liefde... Zeg hem, dat het Volk wil, dat wij gaan naar het Kamp om den Caezar... en dat dit ook beter is... Zeg hem, dat ik over hem waak, ook van verre... Dat ik, na in het Kamp Alexander te hebben gebracht, tot hem kom, in de Hoop... Zeg Zijne Eeuwigheid, dat hij de Senaat terugroept... Zeg dat alles... aan Antoninus... aan Antiochianus: vergeet niets... Ga, ga gauw, Psammeticus... Kom zoo gauw mogelijk terug... Laat Antiochianus zich haasten... Laat hem wijd de Porta Praetoria openen, in afwachting van onze komst... Zeg hem, met kràcht het Leger in bedwang te houden, en den Caezar IN NAAM VAN DEN KEIZER te ontvangen in de veiligheid van zijn Kamp... In volkomen orde, zonder oproerigheid... Ga, ga Psammeticus, en vergeet niet: VERGEET NIETS...
+
+Mammea heeft alles gehoord... Zij weet, zij voelt, dat de Moeder almachtig is... dat zij het geld heeft in handen... de schatten, die zij bergt, niemand weet waar... Toch is zij strálende, dezen nacht van vervoering, Mammea, de Serenissima... Toch ziet zij Alexanders toekomst als purper... Haar kind, geboren op den Alexandersdag, tijdens het feest, in den tempel te Arcena, den Macedonischen heros gewijd; geboorte, omringd door voorteekenen... Een duif legde een purperen ei dien dag... de beeltenis van keizer Trajanus viel neêr over de sponde van Alexanders vader, waarboven zij hing... de voedster heette Olympias, als Alexander des Grooten moeder! Zijzelve, Mammea, had gedroomd, dat zij een purperen draakje baarde; haar gemaal droomde, dat hij ten hemel steeg op de vleugelen van het standbeeld der Victorie, dat stond in het Senaatsgebouw... Altijd heeft zij stille hoop gekoesterd... en nu kàn zij niet meer twijfelen: het Volk heeft haar kind al Augustus uitgeroepen: Alexander zàl keizer zijn!
+
+--- Moeder... wanneèr gaan wij naar het Kamp?
+
+--- Niet vóor Psammeticus terug is gekeerd... Zoo hij heel vlug is, hem geen ongeval overkomt... binnen een uur..., Zie, het Volk keert al terug uit de tuinen... Er komt al een kalmte na Fulvius' woorden...
+
+--- Zal Alexander, Moeder, te paard gaan?
+
+--- In dichte lectica, Mammea, gaat hij met ons! Ik wil geen nuttelooze betooging... Ik wil, met het Volk, Alexander in veiligheid, in het Kamp, maar meer wil ik niet!
+
+--- In veiligheid, niet alleen voor de bende!!
+
+De oude vrouw grijpt haar dochter ruw den arm.
+
+--- Maak mij niet radeloos! sist zij haar dochter aan het oor. Maak mij niet radeloos! Weet ik het niet? Weet ik niet, dat Antoninus Alexander haat? Aan wie ligt de schuld? Aan jou onverzoenlijkheid misschien, Mammea! Maar al haat Antoninus Alexander, ik handhaaf den keizer, en méer wil ik niet dan je zoon in veiligheid, en daarna de verzoening van die twee kinderen! Ik wil, ik wil die verzoening! Zij zùllen zich verzoenen, hoor je, Mammea! Zij zullen zich in het Kamp samen vertoonen! En omdat ik dat wil, en omdat dat zal zijn, zoo als ik het wil, mag geen zweem van verdenking rusten op Antoninus zelven! Hij is onschendbaar, hij is onaantastbaar! Hij is keizer en hij is Helegabalus! De bende? Het Volk mag ze villen! Hierocles? In stùkken mogen zij hem hakken! Maar Antoninus wil ik onaantastbaar, wil ik onschendbaar. Moet ik voor niets hem hebben aanbeden? Hem voor niets meer dan mijzelve hebben liefgehad? Voor niets gewerkt hebben aan de heerlijkheid van zijn almacht? Goed dan, hij is mijn lieveling! Je verwijt mij, dat hij mijn lieveling is! Nu goed dan: hij is mijn lieveling! Hij is de oudste en hij is de heerlijkste! Hij is een gòd: je zoon is een knaap, een lieve, flinke, jonge Romein, en niet meer! Antoninus, hij is een gòd! Hij is, die hij is! Hij doet als hij doet! Zijn hartebloed stroomt anders dan het onze, Mammea! Zijn ziel trilt met meerdere trillingen! Hij is de Man-Maagd op aarde: oordeelen wij diè? Zijn goddelijkheid verontschuldigt zijn menschelijkheid. Ik had wellicht Antoninus anders in zijne menschelijkheid gewenscht: wat is mijn wensch tegenover de wil van den God, onuitspreekbaar! Hij is, die hij is! Hij is goèd! Hij is mijn keizer, en hij is mijn lieveling! Ja, hij is mijn lieveling! Ik handhaaf hem, trots alles en iedereen, tegen heel het Romeinsche Volk in, als zij hem beginnen te haten...! Eenmaal... likten zij het zand, waarover hij trad... Stil! Stil!! Niets wil ik hooren! Geen woord tegen Antoninus! Geen enkel woord! Om zijn goddelijkheid aanbid ik hem, en zijn menschelijkheid, tweevoudig, mannelijk, vrouwelijk, heb ik lief als zij is, en wil ik leiden zoo ver ik vermag. WIL ik leiden tot de Verzoening! Maar geen woord duld ik tegen hem!
+
+De parken uit is het Volk gevloeid... Lichter is de morgen geklaard na dien nacht van glanslooze starren... Langer dan een uur, o zeker, is Psammeticus weggebleven en Mammea's ongeduld is onuitstaanbaar... haar verlangen stijgt tot een koorts... Ook al duldt Moeder niet, dat Alexander te paard naar het Kamp gaat, toch hoopt zij, vaag, vele dingen... Daàr komt de eunuch terug; hij werpt zich --- velen hooren toe --- plat over den grond aan Mœza's voeten; hij zegt:
+
+--- Eerwaarde Clarissima... mijn onwaardige mond brengt u de liefde en groet van Zijne Eeuwige Goddelijkheid, die gisteren den Gemaal, gevaar voor Rome, verstiet... Heden keert de Senaat in genade binnen Romes poorten terug... Zijne Eeuwige Goddelijkheid, door mijn onwaardigen mond, zegt zijn liefde aan den schitterenden Caezar, en diens Moeder, de Serenissima... Antoninus Augustus verzoekt den Caezar en de beide eerwaarde Moeders dezen morgen in het Kamp binnen te trekken, tot alle onrust, door Hierocles verwekt, gestild moge zijn... De praefectus-praetorio, Antiochianus, zal aan de poort van het Kamp U, Moeders, en den Caezar ontvangen...
+
+Honderden hebben het antwoord gehoord, en als zich de Menigte verspreidt, als tot den tocht naar het Kamp de orders worden gegeven, gaan de geruchten door het Palatium, over den Palatinus en de area, over de straten heen en wegen, waar zich het Volk opstelt om Alexander toe te juichen:
+
+--- Heb je gehoord: hij verstiet Hierocles...?
+
+--- Ook de anderen van de bende...?
+
+--- Dat weet ik niet, maar als hij Hierocles van zich stoot...!
+
+--- De Senaat keert terug...
+
+--- Ha-ha, op giraffen? In tonnen??
+
+--- Heb je gehoord? Heb je gehoord?? Antoninus zendt zijn liefde aan den „schitterenden“ Caezar?
+
+--- Aan de Serenissima!
+
+--- Hij verzoekt zelve hen in het Kamp te komen!
+
+--- Vertrouw dat toch niet: dat zijn woorden...
+
+--- Dat zijn woorden van Psammeticus...
+
+--- Een geslepen eunuch...
+
+--- Antiochianus zal den Caezar ontvangen!
+
+--- En Antiochianus haàt Alexander?!
+
+--- Is dat dan de Verzoening??
+
+--- Komt de optocht van de Moeders daar al?
+
+--- Zie je Alexander nog niet? Eindelijk zullen wij hem zien... In wéken hebben wij hem niet gezien... Heeft hij zich niet vertoond... Ja, van nacht, op het balkon, eén oogenblik... Maar nooit op straat, nooit in het Kamp... Zie je hem? Zie je hem dan nog niet?? Rijdt hij op een wìt paard? Wat... zie je hem niet? Waar is hij dan...? Is hij in de lectica met de Moeders?! Heil, heil Alexander Caezar Augustus!!!
+
+--- Stt... Dat mag je niet roepen!
+
+--- Dat mag je niet roepen, burger! Antoninus is Augustus!
+
+--- Zoo, mag ik Alexander Augustus niet roepen? En van nacht mocht ik het wel!
+
+--- De keizer verzoent zich met Alexander...
+
+--- Verzoent de keizer zich?
+
+--- Is alles dan afgeloopen...?
+
+--- Zien we dan niets meer, van morgen...?
+
+--- Of zien we nog de Verzoening...?
+
+--- Komt de keizer dan ook in het Kamp...?
+
+--- Gebeurt er dan wat...? Gebeurt er dan wat...?
+
+--- Een optocht? Een Dienst?
+
+--- Een Dans misschien?
+
+--- Nou, ik heb genoeg van dansen...
+
+--- En zelfs van optochten IK!
+
+--- Ik ken ze van buiten, hoor: Ave Antonine! Ave Antonina!
+
+--- Altijd dat zelfde Magiërgebas!
+
+--- Ik dacht dat er oproer zoû komen... Opstand... Burger-oorlog...
+
+--- Dat valt je niet meê, hè!
+
+--- De Oude Hoop brandde gisteren al zoo mooi!
+
+--- Wel neen, dat waren drie boomen, die brandden!
+
+--- Gebeurt er dan nièts van daag!!
+
+--- Nou, àls er van daag dan niets gebeurt... en als ik Alexander zelfs niet zien mag... dan ga IK...
+
+--- Waar ga je dan heen, zeg, burger?
+
+--- Dan ga IK, burger, naar bed!
+
+## 8\.
+
+Het is in den zonstralenden morgen, in fellen, van over de bergen aanblazenden wind, die hoozen van stof op doet stuivelen, een koorts, een zwijmel, een dronkenschap... Horden van volk, in die stofhoozen, ijlbeenen aan, om toch maar niet te laat te zijn... Zouden de poorten open zijn van de Castra Stativa? Zouden zij zièn, de Verzoening zien? Het schreeuwende stemgebulk in den wind verwaait met flarden van koortsig gesprek, beredeneer en getwist, in voorkeur voor Antoninus of voor Alexander, en hoewel de keizer zich heden met den Caezar verzoenen zal in het Kamp, vloeien de horden, de eindelooze horden des Volks als twee evenwijdige stroomen, maar die niet kùnnen verzoenende samensmelten, langs de tuinen van Sallustius en uit de Subura tusschen Quirinaal en Viminaal, de Porta Viminalis, de Porta Collina, de Porta Nomentana door: een stormvloed van volk, een aàngolvende zee, zongloeiend donker bontkleurig bewegelijk, over de heuvelen neêrstortende met de katarakten-massa's van hun zeegolvenden menschenval, over de wegen weêr samendringende als een dichte vloed, die wegsnelt in een nauwere bedding, langs de palissadeeringen, grachten en wallen van het stadgroote Kamp weêr ziedend uitdeinende in wijdere, de voorvlakte der poorten overstroomende, razernij van aanstormende, -stormende bewegelijkheid, waaruit telkens vijandig tegen elkaˆr de kreten Alexander! Antoninus! klinken. Maar razende bewegelijk is ook de wind, blaast om de hoeken der palissadeeringen den menschenstroom in den rug, of in het gelaat, en de in koortszwijmel dronkene horden hooren hun eigene stemmen niet meer, het beredeneer en getwist verwaaid in de plots overbergsche aanorkaningen, plotse cyclonen dwars door klaterenden zonneschijn heen, dadelijk gevolgd door verrassende neêrvallingen van die wind-energie, tot zij, op het onverwachts, als met levende ademen, weêr tegenrazen, blazen met de gedachten van die menschenzee verdwazende, felle waaiïngen, zoo, dat redeloos handen zwaaien en mantelslippen, en koppen grijnzen en dreigen, uit de stof- en zandhoozen, die wirrelen omhoog... Gelukkig, de poorten des Kamps... zij zijn open! Reeds uren, uren lang zijn de horden gevloeid, de vier poorten in van het Kamp, maar dadelijk bedwingt hare opgewondenheid het aanzicht der tallooze troepen opgesteld, langs de hoofdstraat der steenen Praetoriaansche kazernen, maar ook langs de eindelooze strigae der vanenwimpelende tenten van alle Barbaarsche Auxilia: Galliërs, Germanen en Daciërs; Sarmaten, Helveten, Luzitaniërs; Numidiërs en Parthen; allen opgesteld te voet en te paard; het voetvolk man op man stijf tegen elkaâr gedrongen; de Parthische en Numidische kavallerie, wijd gesamaard de eerste, en de laatste zadelloos opgestegen, dringend der trampelende rossen achterlijven zenuwig rillende tegen elkaâr... Een uitgeschitter van vogelen- en dierenbeelden, adelaars, wolvinnen, en sperwers; een uitgesteek van vexilla met goudene handen, een uitgegeesel van wimpellinten en geflapper van vanebanen boven de overhelmde en ommaliede koppen, smeren van kleur en klompen gevonkel --- en achter, langs de dicht opgestelde troepen, verkrinkelt, verschuimt, verijlt het Volk en stelt zich insgelijks op, dringende duwende, stuwende man tegen man, om de eenmaal gewonnen plaats niet te verliezen of te ruilen voor betere, om zóo te zien, de Verzoening te zién. Ginds --- aan het einde der Hoofdstraat --- schittert marmerwit, tempelachtig, het Praetorium, leger-woning van den praefectus-praetorio, Antiochianus, overwimpeld, overvlagd, en als met blinkerend ornament en snoer omgeven door de gouden en zilveren schildkeverrustingen en plakkaat-aaneenschakelingen van de pracht-kavallerie: de chrysaspiden, de argyraspiden, clibanariï en katafractariï: in de zon een gewemel van vonken en geschemel als van spiegels metaal, zoo de paarden steigeren en de langwerpige schilden de klatering opvangen van het blakende licht...
+
+Op het onverwachts, als met levende ademen, blazen, razen de plotse cyclonen der overbergsche aanorkaningen: de tenten flapperen, als zoû windewaai ze geheel òp doen vliegen de lucht in; de vanen ranselen, de wimpels kletteren...
+
+Centurionen, ordinariï draven heen en weêr; de wachting duurt uren, uren... Wanneer zal het Volk de Verzoening zien? Nu zijn plaats niet verliezen, terwijl alle oogen in de richting gaan van het ginds goud-omvonkelde Praetorium... Tuba, bucina, die klaroenschetteren...
+
+Kòmt het, kòmt het nu??
+
+In de aula van het Praetorium is een dichte, van plechtgewaad zwaar plooiende menigte. Het zijn de beide Consuls, die aftreden, nu benoemd tot de hoogste eere-magistratuur, voor niet langer dan eén jaar, zijn de keizer Antoninus Augustus en de Caezar Aurelius Alexander, om aan geheel het Romeinsche Volk de Verzoening te bewijzen. En het zijn de leden van den Senaat, de laticlavia ompurperd blank, bezaaid met gouden knoppen; het zijn de Pontifex Maximus, de flaminen en de Archimagus van Helegabalus, de hoogepriesters van alle priestercolleges, de sodalen der vergode keizers; de quaestor Gordianus Junior; de Praefekt van de Stad Fulvius; Antiochianus, de praefectus-praetorio, met Aristomachos en hun staf legerpraefekten, tribunen; de Praefekt van de Vloot, die der Levensmiddelen... Tubae, bucinae, die schetteren... Binnen uit het midden-peristylium van het Praetorium treden --- het vuur gedragen vooruit --- de Moeders, de drie; de oude Mœza vooruit, omstuwd door een dichten stoet van eunuchen, cubiculariï en vrijgelatenen; en de drie Vrouwen zetten zich op de drie marmeren tronen, die voor haar zijn gesteld. Weêr tubae, bucinae, die schetteren, en aan weêrszijden der aula, van links en van rechts, treden op elkaàr toe, geleid door senatoren, de keizer en de jonge Caezar. Beiden zijn breed omplooid door de wit-en-purperen praetexta der Consuls, den ivoren staf in de hand... Zij treden op elkander toe, reiken de staven aan twee cubiculariï, en Antoninus, zijn lippen even in glimlach ontloken, maar raadselachtig half toegesluierd zijne oogen met lange wimpers, nadert Alexander --- den neef, dien hij aannam als zoon --- de beide armen ge-opend... Er is een suizende stilte onder zoo vele honderden, opgedrongen in de te kleine ruimte der aula... Antoninus houdt Alexander in zijne armen en kust hem lichtelijk op beide wangen... Alexander kust Antoninus zoo. De Consuls nemen hun staven weêr aan, en zij wachten, over elkaâr, want Mœza is opgerezen, en als Clarissima, Senatrix, houdt zij een korte toespraak. Hare oude stem trilt schel en krachtig. Antoninus is verveeld; hij vindt deze te Romeinsche ceremonie, waarin Alexander als gelijke òver hem staat, hèm, Helegabalus, onwaardig, en zijn glimlachende lippen trekken ironiesch; zijne oogen knipperen met een nerveuzen tic... Maar de waardigheid der Grootmoeder houdt hem in bedwang, en hij weet, dat zij het uiterste deed, om hem na den nacht van oproer, te handhaven in het Imperialaat. Hij is in een vreemde stemming. Hij voelt lichtelijk vernederd en zijne gedachten zwerven weemoediglijk, hij weet niet waarheen... Onvoldaan, vindt hij deze vertooning onzin. Hij begrijpt niet waarom het noodig was hem met Alexander tot Consul te benoemen, ook al weet hij, dat dikwijls, tot eere groot, den keizer de Consulswaardigheid toeviel, voor een jaar, voor drie maanden, een maand... Hij geeft niet om hun Romeinsche tradities. Hij zoû lust hebben zijn praetexta af te slaan, en, naakt, zich in dans te wringen... Maar Mœza heeft hem verzocht, waardig, deftig, Romeinsch te zijn... Hij speelt zijn rol, als hij twintig rollen speelde... maar deze rol speelt hij slecht...
+
+De deuren der aula bronskletteren open; tubae, bucinae schetteren... In den orkanischen stof opstuivelenden wind buiten verwaaien tot koperen atoompjes hier en daar fanfareklanken weg. Een breede golf van toga en laticlavia en priestergewaad strijkt over de treden naar buiten... Hoog-òp waait de wind al die plooi-wapperende mantels, en met bruischend geluid stormt-aan het gejuich, het geroep, het opbulderend geschreeuw van de pletterdicht geperste massa's. Zand overstuivelt met een wirrelende hoos de Hoofdstraat, vrijgehouden. Tusschen senatoren, hoogepriesters, en waardigheidsbekleederen --- hen, wien „de macht van het zwaard“ werd gegeven --- tusschen de Moeders en dicht gevolg zijn verschenen de Caezar, de keizer... En plotseling, op Antiochianus' commando buldert de welkomst der troepen uit, met éen titanenroep, voór het Praetorium, en langs de straat:
+
+--- Diï te servent, Antonine! Alexander, Diï te servent! De Goden behoeden u beiden!
+
+Fanfare, fanfare na fanfare, van af het Praetorium langs de straat. De beide nieuwe Consuls bestijgen de consulaire statie-kar, door voortgeleid vierspan getrokken, en zij zetten zich naast elkaâr, Antoninus en Alexander, ieder op zijn sella-curulis, de ivoren schabel, Consulzetel. Vier-en-twintig lictoren, de omkranste roêbundels-en-bijlen torsend, omstuwen de statie-kar, aan beide zijden te paard Aristomachos en Antiochianus, met hun staf van legerpraefekten, tribunen; de argyraspiden, de chrysaspiden, clibanariï, katafractariï... De razende wind schijnt de vonk-weêrspiegelingen dier rustingen en dier schilden te verwarrelen in een gebreek van stralen en een gewissel van glansen, oogeverblindend de al door stof oogverblinde Menigte. Onder geen keizer is ooit gezien zulk een pracht van kavallerie. Louter in goud omsmeed en in zilver ommalied, de zeer groote schilden als spiegels, die opvangen den blinkerenden zonneschijn, de paarden in zilver en goud omschabrakt, zijn de gouden-schilddragers, het allermeest bevoorrecht door Antoninus, --- zij allen uitgekozen heel mooie mannen ---; zijn de dragers-der-zilveren-schilden meer tot Alexander geneigd. Maar is het heden niet de Verzoening? Ziet Rome niet de Verzoening heden? Achter de voortgeleide quadriga der Consuls, wiegelt zacht aangeschommeld, pluimen fel wuivend en gemmen hel schitterend, de lectica van de drie Moeders, Mœza tusschen Semiamira en Mammea: is dat dan niet de Verzoening; beide dochteren ter zijde der Grootmoeder? Men mist de keizerin, Annina Faustina: of is zij als Cornelia Paula, als Aquilia Severa, verstooten al weêr? Huwt de keizer dra voor de vierde maal? Welken Gemaal zal hij na Hierocles huwen? Zijn de gunstelingen àllen verbannen? Het Volk ziet niemand der bende...
+
+Brrr, wat waait het ontzettend, een koude overbergsche wind, een orkanische razernij, die de wimpels door de lucht doet geese-len, die de vanen met heur banen doet ranselen, die menschen en paarden verblindt door opstuivelende hoozen zand en stof... Dolle wirrelingen van stof en zand dwarrelen op en duizelen neêr en stuivelen neêr of verstuiven recht voor zich uit...
+
+De troepen juichen niet meer. Op het commando van den praefectus-praetorio hebben zij gejuicht; nu, schrap in den wind zich zettend, wachten zij af, militair. Langzaam gaat de stoet door de Hoofdstraat des Kamps en met de ivoren staven groeten de Consuls... Eerst schuchter bij het Praetorium, klaart een heftig gejuich op uit den wind, onduidelijk eerst, verwaaid, maar dan beslister uitklankend in duidelijkheid:
+
+--- Heil, heil de verheven Consuls!
+
+Dat is nog het Volk, dat juicht! Maar Antiochianus commandeert nu de langs den weg opgestelde troepen, voetvolk en paard-volk, bulderend:
+
+--- Diï te servent, Antonine!
+
+--- Alexander, Diï te servent!
+
+--- Heil, heil Alexander! juicht het razende Volk na. Heil Aurelius Alexander Caezar Aug...
+
+--- Stt!! dreigen hastati, veliten en hunne centurionen en ordinariï donderen, juist voor dat de consulaire statie-kar aantriomfeert:
+
+--- Bij alle goden: NIET Caezar Augustus roepen!
+
+--- En een week geleden mochten we wèl!
+
+--- De keizer alleén is Augustus!
+
+--- Dan maar: heil Aurelius Alexander Caezar! schreeuwbrult het Volk.
+
+--- Heil Augustus!! schreeuwt een stem na.
+
+Het is niet duidelijk, wien heil wordt geroepen, den keizer, den Caezar... en Antiochianus commandeert... De troepen bulderen:
+
+--- Diï te servent, Antonine!
+
+... Het Volk zwijgt, staart naar den keizer, die groet met zijn ivoren staf.
+
+--- Alexander, Diï te servent! bulderen de troepen nu.
+
+--- Hèil, hèil Alexander!!! schreeuwbrult het razende Volk. Heil Aurelius Alexander Caezar! Heil onze geliefde Caezar! Heil onze heerlijke Alexander! Heil Alexander! Hèil Alexànder!!
+
+...Geen enkele stem uit het Volk roept Antoninus heil. Hij is doodsbleek geworden... Is het de wind? Hij rilt van de koû... Is het het stof? Bijna tranen zijn oogen... Hij klappertandt en hij beeft... Recht, op den rugloozen schabel, zit hij, naast Alexander... Duldeloos langzaam gaat de stoet, en telkens op Antiochianus' commando, bulderen de troepen:
+
+--- Diï te servent, Antonine...
+
+...Alleen de wind ruischt... de vanen flapperen... en klètteren de wimpels...
+
+--- Alexander, Diï te servent!
+
+Dàn schreeuwbulkt, razender dan de wind, het krankzinnige Volk na:
+
+--- Heil, heil Alexànder! Heil onze heerlijke Caezar! Heil onze schitterende Caezar!
+
+Antoninus wisselt eén snellen blik met Antiochianus, die rijdt aan zijn zijde... En het is of met dien blik de keizer en zijn opperbevelhebber --- in liefde-aanbidding hèm altijd trouw, tot in den dood --- elkander begrijpen, elkander mededeelen die wanhoopsgedachte: het uiterste... het uiterste doen...? Zijn alle troepen niet op Antoninus' hand, de pracht-chrysaspiden zeer zeker... Alexianus, plotseling, door eén --- wie ook maar, Aristomachos misschien, die, bleek van ingehouden woede over de insolentie van het Volk van Rome, rijdt aan des gehaten Caezars zijde --- doen vermoorden... daar... in het Kamp... te midden van àl zijn toejuichingen...
+
+Strijd, strijd, goed; maar Alexander vermoord, als verrader, die stond naar des keizers leven... zullen het Volk en het Leger dan beiden niet... De wanhopige gedachte, in den wind, verwaait... Neen, zeker is het geen gunstig oogenblik, denkt Antiochianus na. En, barsch zijn baardig soldatengezicht, kijkt hij naar den keizer, dien hij aanbidt... Hij schrikt... Ook hij rilt bijna van koude...! Naast Alexander --- fier, stevig, breed --- een jonge Romein -, spookt-òp als een larve de keizer!! De Consul-praetexta, winddoorwapperd, hult hem in vormlooze draperie, wit en schreeuwende rood, en daarboven, star als van een òpgerezene doode, staart met tranende oogen zijn gelaat... ingevallen... opgeschilderd te veel in dit erbarminglooze zonlicht, zijne oogen van smart en orgie omkringd... zijn wangen gegroefd --- zijn mond bitter, minachtende en treurig toch... en zijne oogen, zijne anders lonkende, lokkende, violette sfinxe- en meide-oogen, òverloopend van tranen, die hij weêrhouden niet kan... Hij schijnt het koud te hebben: hij rilt! Hij klappertandt zichtbaar!! O, Antiochianus denkt aan de glories van de Diensten en Dansen, aan den Triomftocht binnen Rome, aan zoo vele vertooning en ceremonie... toen zijn Antoninus jong stralende heerlijk was, als een god! Nu, o nu is hij, helaas, als een larve, als een schim! Een schim van ontzetting, ironie, smart... Een schim, die lijdt... die uitbarsten zal in snikken! En toch... hij is Antoninus! Antiochianus heeft Antoninus lief, lièf als zijn kind, als zijn vrouw, als zijn keizer, zijn god, als zijn alles, met eén onverdeelbaar gevoel, onveranderlijk, onveranderlijk... Hij zoû hem willen warmen, troosten... Hij zoû hem eén woord willen zeggen... Hij weet niet, hij kàn niet: hij kan alleen commandeeren...
+
+En de troepen, op zijn commando, roepen het: Diï te servent...! Maar het Volk roept alleen Alexander uit! Een marteltocht is deze triomf voor Antoninus, en, blind van tranen, van woede, van stof, wendt hij zich plots tot Alexander en sist den knaap in het oor:
+
+--- Ellendeling! Snòtjòng! Krèng, dat je bent! Kreng van een kreng van je moeder! Dat heb je opzettelijk laten doen! Omgekocht heb je het Volk! Omgekocht met Grootmoeders geld! Omgekocht met het geld, dat MIJ toekomt! IK ben de keizer: mij komt àlles toe! Hoor je, snotjong? Alles!! De toejuichingen van het Volk... het geld van Grootmoeder... en joù leven, als ik het wensch! Pas op, pas nu op! Ik haat je! Ik haat je zoò, dat ik er gèk van ben! Ik walg van den kus, dien ik je zoo even gedwongen was te geven! Verzoèning? Terwijl jij en je kreng van een moeder het Volk omkoopen, om joù alleen toe te juichen? Deze dag is je laàtste dag! Hoor je? Doòd moet je... doòd zal je... van daag, van daag! Consul? Augustus!? Krèng!
+
+In den wind, in het bulderend gejuich van Leger en Volk, verwaaien Antoninus' ziedende woorden dadelijk, hoorbaar slechts voor den Caezar. En de knaap, bleek om die beleediging, maar blij om den gunst van dat volk daar, toch domp steeds in zijn ziel besluiteloos, denkt, eén oogenblik slechts:
+
+--- ...Ik heb een dolk! Als ik Antoninus doorsteek... dàn... dan vindt het Volk dat goed... Dan ben ik... dan ben ik... keizer!
+
+Maar dadelijk denkt hij, na, aan zijn moeder. Wat zal zij meenen...? Dat dit gunstig een oogenblik is...? En zijn hand laat onder de praetexta den dolk weêr los...
+
+Nu is de optocht de Porta Praetoria des Kamps uit, op weg naar den Capitolinus, opdat in den Tempel van Jupiter de Consuls de heilige eeden zweren...
+
+--- Heil, heil Alexander!
+
+--- Heil onze heerlijke Caezar!
+
+--- Heil onze schitterende Caezar!
+
+--- Heil onze gróote Caezar!!
+
+Met den razenden wind, Rome toe, gaat het gejuich van het Volk mede... Geen enkele stem --- dan soldatenstem na commando --- die Antoninus uitroept en toejuicht! Marteltocht is hem deze triomf! Noóit heeft hij zoo geleden! Hij heeft het ijskoud, hij bevriest in zijn merg: hij smàcht naar de warmte van liefde en van aanbidding: hij smàcht naar Emessa, naar vroeger! O, zal hij zich zoo beleedigen laten tot het einde toe, tot den Capitolinus toe, de tempeltreden van Jupiters heiligdom òp... en dàn weêr terug... tot het Palatium!? Zal hij zich zoó beleedigen laten!? Hij schreit niet meer; hij is krankzinnig van smart, een martelende smart, niet meer uìt te houden, niet meer ìn te houden, in zijn arm lillende hart... En plòtseling --- een schrik door den optocht! --- rijst hij... rijst hij op... spokebleek... van af zijn ivoren schabel... zwaait dol zijn armen uit... wenkt... gebiedt Antiochianus... ròept uit:
+
+--- Antiochianus...
+
+Hij wenkt ter andere zijde...
+
+--- Aristomachos...
+
+Zijn armen gebaren, bevelen krankzinnig uit de praetexta... De quadriga houdt stil, en het samendringend Volk, achter de soldaten, hoort Antoninus schreeuwen:
+
+--- Antiochianus! Antiochianus!! Ben IK de keizer, of ben ik het niet? Zeg mij, ben IK de keizer? Moèt de keizer van Rome zich beleedigen laten, door het omgekochte Volk van Rome, tot den Capitolinus en den Tempel toe?? Een triomfweg lang zich beledigen laten, triomfweg, voor dàt snotjong alleen?? Consul? Ik?? Als mij het stinkende volk van Rome beleedigt?? Daár gaat mijn Consulstaf!!!
+
+Op de knie breekt hij den ivoren staf, slingert de stukken over den samengepersten drom van het Volk, schel, ironiesch zijn schampere lach, hen beleedigend op ZIJN beurt!
+
+Een verwarring, een razernij, een gejouw... De Moeders, ùit de lectica, tusschen haar warrelend gevolg... Het Volk, golfstuwend tegen de consulaire kar òp, als een zee tegen den goud-zilveren dijk der kavallerie, die bezwijkt... De paarden hinnikend, steigerend, slaand met de voorhoeven neêr... De katafractariï de zwaarden zwaaiend... Een gebrul uit het Volk...: ziel uitschreeuwend vallen getroffenen... De wind orkaant hevig van over de bergen aan: de verwarring is in een dichte stofhoos omwirreld...
+
+Ginder beveelt Mœza: Semiamira, Mammea, staan over elkaâr, schimpende, scheldende... De Augusta dringt, toè naar haar zoon... Antoninus is de kar uit gesprongen... Antiochianus geeft hem zijn eigen paard, waarop zich de keizer slingert... de praefekt, de tribuun, hun staf, omringen hem dadelijk, dicht, àlle zwaarden getrokken... Te paard, tusschen die bescherming, spuwt Antoninus zijn haat uit tegen Alexander... Ook de Caezar is de kar uit gesprongen... De argyraspiden zijn het, die partij voor hem trekken, hem tusschen hun zilveren schilden beveiligen... Voor den drang van het Volk zijn de opgestelde troepen bezweken... Leger en Volk dwarrelen door een: razende wordt er geroepen:
+
+--- Wèg met Sardanapalus! Hèil Alexander!!
+
+Te midden van zijn goud-vonkelende pracht-chrysaspiden, tusschen Aristomachos en Antiochianus, galoppeert Antoninus weg, wèg, in de richting der Oude Hoop...
+
+## 9\.
+
+Plotseling, daar, in die verwarring, in dien wind weet het Volk, wat het jaren gemist heeft, wat het làng niet genoeg heeft gehad... Dat is blòed: dat is bloed zien, ruiken, vergieten! Ceremonie hebben zij genoeg gehad, allerlei optocht en plechtigheid, maar te weinig hadden zij bloed! Want niet tellen zij meer het bloed van duizende offerdieren... of het bloed van enkele zuigelingen... daar het bloed, om rite gestort, niet verzaadt den zinnelijken bloeddorst... En plotseling, in die verwarring, dien wind, in dien hunne keel schroeienden dorst naar bloed, begrijpt het Volk... dat zij moeten kiezen, wat honderden van hen nog niet hebben gedaan... moeten kiezen voor Alexander... of voor Antoninus... En zij kiezen, daàr, plots, op dàt oogenblik... Velen kiezen in verblindheid en onwetendheid van eigen gevoel; te laat is het meer na te denken... De argyraspiden, juichende, scharen zich om Alexander te paard en zij voeren hem naar het Palatium met Mammea en Mœza, die te vergeefs haar gezag wil oefenen... Semiamira, plots, is verdwenen... Maar een troep hastati, lansen gestrekt, drillen, bliksemen, flitsen in op een klomp van dat Volk, dat heftig gebaart; de lansen drijven door als wormen wringelende lichamen, in stervensangst puilen tronie's en als de in schuim verwrongen monden stervende den naam van Alexander hokken, bespeurt de primipilarius, die aanvoerde, dat hij onder des Caezars aanhangeren heeft gewoed, onder welke hijzelve behoort...! Het deert niet; de soldaten zien bloed: op de driepunten hunner lansen steken zij de koppen omhoog, die zij afhakten; anderen trekken de lijken aan haken; het bloed vloeit, het bloed stroomt, gulpt rood en rint zwart...
+
+Te zacht verfijnd, te symboliesch verdorven, te godsdienstig nauwlijks wreed zijn de zeden van het verwijfde Oosten geweest, dan dat het Volk en het Leger beiden niet nu eerst bespeuren zouden wat zij jaren lang hebben gemist, de drie jaren van Helegabalus: bloèd, ruw-weg in slachting vloeiende, stroomende, gulpende, uit gesleepte menschentronken over de wegen; bloed, klonterende aan hoog geheven, afgehouwene hoofden, en zóo, met het bloed veler, die niet voor het Oosten waren, wreken de geweldenaren, dat het Oosten Rome verwon. Zoo dicht bij het Kamp weten de legioenen aldaar al heel spoedig wat is gebeurd: de razernij van Antoninus, de vlucht naar de Hoop, maar Alexander in zege ten Palatium gevoerd en met cohorten en thurmen, solidair aangedrongen, maar niet meer hoorende naar hun tribunen, stormen zoo wel de Romeinen als de auxilia toe naar de Stad, naar het Forum, den Palatinus... Op Antiochianus' bevel hebben zij allen gejuicht en Antoninus toegeroepen, dat de goden hem mochten behoeden; nù, plotseling, dat zij beslissen moeten, wéten zij, dat zij Alexander willen hebben, weten zij, dat zij Alexander lièf hebben. Maar ook anderen, vele veteranen, velen der Syrische, Fœnicische legioenen, voelen, dat zij niets van Alexander te wachten hebben, voelen, dat voor hèn Antoninus bleef het goddelijke kind, waarop zij verliefden --- daár, drie jaren in Emessa geleden --- en na de eerste schermutselingen, waarbij, o zaligheid! het bloed vloeit en opspat en een dorst in hen koelt, ijlen dezen in drommen dicht naar de Hoop, om zich te vereenigen met de chrysaspiden, om rondom Antoninus te blijven, en hem nòg te doen zegevieren. Was Mœza niet steeds voor den keizer? Heeft zij niet hare schatten in handen? Wat kan Mammea als Mœza niet wil? En zóo velen --- het Kamp verlaten --- storten toe naar de Hoop, dat het eigenlijk onzeker is of het grootste gedeelte van het Leger voor Alexander wel is... In Rome moeten de Romeinen besluiten: voor Alexander? Voor Antoninus? Velen besluiten zonder te weten; velen verbergen zich in hunne huizen, onverschillig, sluiten de luiken der winkels: zij komen later te voorschijn wel...
+
+Ter Oude Hoop, waar de gunstelingen met den Gemaal des keizers zich die week hebben verborgen, is niet meer dan de Paleiswacht gebleven, alle troepen gecommandeerd naar het Kamp voor de Consulaire Ceremonie. Maar de schildwachten, plotseling, zien den langen weg af komen dwarrelrazen een òpstuivelende stofwolk, waar veel gouden vonken in schijnen te schitte-ren, en zij schetteren hunne signalen, niet wetende, niet begrijpende... Door het Peristylium en de tuinen van het zomerhof snellen de nieuwsgierigen verward door elkaâr, om te begrijpen en te weten wat nadert: de Magiërs, de Priesters-der-Zon, de deernen en danseressen, de cubiculariï en narren en kinderen, het rent alles naar de wallen, nieuwsgierig, en dan weêr, in vrees, terug, tot kreten weêrklinken, als de stofwolk, die vonken schiet, aan de poort van de eucalyptuslaan is genaderd:
+
+--- Het zijn Antoninus, en Antiochianus, en het zijn de chrysaspiden!!
+
+Wat? Is de keizer dan niet naar het Capitolium, voor de consulaire eeden? Is de Verzoening niet geweest? En honderde stemmen roepen en vragen en schreeuwen door elkaâr, maar tot in de tuinen galoppeeren de chrysaspiden aan, Antoninus in hun midden, en daár eerst slingeren zij zich af van hun paarden:
+
+--- Naar de wallen! Naar de poorten! commandeert Antiochianus.
+
+Antoninus heeft zijn Consul-praetexta àfgerukt, en razend met zijn handen, zijn tanden verscheurt hij zijn gewaad in flarden. Wie hem naderen, duwt hij van zich; snikkend en vloekend ijlt hij de trappen op van het Peristylium en verbergt zich in zijn kameren. Daar is het donker, voor de zon, gehouden. Een zachte schemer van goud weêrblinkt, van loofwerk aan zuilen, van kussens op bedde, van kannen en bekkens, van sieraden, die over drievoettafelen slingeren; een geur van Syriesch reukwerk trillert op uit een open gebleven onyxen kruik; in een hoek, op een slip van een mantel, die sleept, slaapt het geluksbeestje, het baziliskje, het kleine draakje, en schijnt in den schemer een levend juweel, de schubben zacht van gemmen vonkelend. Door opene zuilepoorten --- weg de voorhang aan ringen getrokken --- verschieten de kameren in dommelige verte: er schemert het albast van het bad, er tikkelt de straal der fonteinen, en rondom de wanden gaan de fresco-friezen en teekenen uit, in den schemer, de, saters tot liefde verlokkende en achter zich op trekkende, hermafroditen en androgynen, in de overdreven zwelling der strevende en smachtende vormen. De knaap, naakt, is op het bedde gestort, in het mid-den van zijn slaapvertrek, een breed bed van goud, goud overdekt, gouden kussens gestapeld, met gouden kwasten, die afsleepen; een bed als een gouden altaar der lust, aan de vier hoeken der treden hooge wierookvazen, die nu niet ontstoken zijn. Hij snikt, Antoninus, van smart en van razernij, van zielepijn en van haat, die ziekt in hem, om Alexander smartrazernij en zielepijn, dat niemand --- geen stem! --- van het Volk hem heeft toegejuicht tusschen de gecommandeerde juichingen des Legers uit, hem, dien zij eenmaal aanbaden... O, de warmte van dat enthouziasme te Emessa, waar zij in den Tempel elkander vertrapten en dood drongen, om hem te zien dansen... Nooit had hij Emessa moeten verlaten! Daár had hij moeten dansen blijven, eeuwig jong, of vroeg dood, en òp in het Licht gevaren! Waarom heeft Mœza hem keizer gemaakt! Hij is geen keizer geweest! Had zij Alexander maar keizer gemaakt, en hem te Emessa gelaten. Maar dan... dan had hij Hierocles niet gekend! O, zoo te lijden, te lijden van koû in zijn naar warmte smachtende ziel, zoo razend en smartelijk te lijden in die van pijn gemartelde ziel, en doòr die pijn nog te voelen, als een brànd door ijskoude heen, die haàt, die haàt tegen het snotjong, dat zij hem nog hebben gedwongen te naderen als gelijke, met de armen tot omhelzing ge-opend en met de lippen toegestoken tot zoen! O, en wat nu, wat nu?? Hij kan niet meer zoo blijven leven, zoo afgefolterd --- zóo, dat het pijn doet --- afgefolterd van te vergeefs smachten naar de warme liefde en bewonderende aanbidding van het Volk, dat niet meer lief heeft, bewondert, aanbidt... Hij kan toch zoo niet meer léven?! Hij wentelt zich als in pijn, kreunende, kermende, snikkende, over het bedde, schuurt zijn gezicht tegen de gouden kussens, omhelst dien stapel van gouden kussens, en hij roept:
+
+--- Narr! Narr!! Waar ben jij dan... als niemand... als niemand hier is...??
+
+De Moor heeft gezien en gehoord van uit het dommelig verschiet der zuilepoorten, wèg de voorhang getrokken... En hij komt nader, stort zich neêr aan de treden van het voeteneinde.
+
+--- Meester! O Meestertje!
+
+--- Narr... heb je mij lief?
+
+De Moor omhelst Antoninus' voeten tegen zijn zwarte borst, en hij kust die voeten herhaaldelijk...
+
+--- Narr... heb je mij lief...? Sluit dan de deuren, grendel ze, en aanbid mij, opdat ik het warm krijg... Ik heb het koud, ik heb het koud! Ontsteek den wierook in de vazen... Neem die rozen daar en ontblader ze over mij heen... Zoo; kom hier, Narr... Kom op bed, in mijn armen, over mij heen... Strijk mij en streel mij, opdat ik ga tintelen... Voel je hoe koud ik het heb... Ik sidder als in koorts en ik klappertand... Narr, denk nu aan Emessa... Aan de rozenboschjes, waar wij ons verscholen... Twee kinderen waren wij, die zochten... In de warme middaguren... Om ons snerpten de pauwen en snerpten de rozen liefdekreten... Wij speelden als stoute kinderen... Je beet me, ik sloeg je... Ik ontvluchtte je, je liep me na... We waren vroolijk, we deden grapjes... Maar op den Toren wachtte Hydaspes mij, en daàr werd ik... heel ernstig... En in den Tempel was ik geen kind meer, maar werd ik god: Helegabalus! Narr, ik ben de hemel; jij, de aarde... Maar de aarde verwarmt den hemel... O, de wierook is om mij heen als wolken, waarop wij drijven... Wij drijven op wierook en op rozenadem... Geluk, liefde van onze kinderlijkheid, waarvoor ik alles, àlles zoù geven... kom terug! O, herhaal je, o, herhaal je!! Zoo... zoo is het geweest... vroeger... daár; zoo... zoo is het ook nu... ook nu... Narr, mijn Narr, zoo is het ook nu... Misschien voor de laatste maal... Blijf liggen... blijf liggen, Narr... Blijf zoo tegen mij aan, want al ben ik keizer, jij slaaf, wij sàmen zijn speelmakkers geweest... Zeg mij, de gouden dolken; zijn ze hier...? Misschien kies ik een gouden dolk... De zijden strengen? Opgehangen te bengelen is niet mooi, en bloed, dat rint, is dadelijk walgelijk... In den brontea het bliksemend vergift... Dàt, dat zal wellicht het beste zijn... Den Toren der Gemmen had ik laten bouwen, om daar kostbaar en mooi te sterven... maar de toren is ver... ver van ons... in het Palatium... Ik weet niet, Narr, waarom... maar daàr kom ik nooit weêr terug... Ik weet het... ik voèl het... Dus het bliksemend vergift! Waár is het? Daar in die nis zie ik flonkeren... Geef het hier, geef het hier, Narr, om het warm voor goed te hebben, in het Licht, in het blakende Licht, en drink het met mij, en sterf met mij... en meê neem ik je ziel in het Licht dan, mijn speelkameraad van... Emessa!
+
+De Moor is opgestaan, rillend van zaligheid, om den flonkersteen uit de nis te halen... Maar op de gegrendelde deur bonst een vuist:
+
+--- Antoninus!
+
+Het is Hierocles.
+
+--- Antoninus, doe open! Dòndersche jongen, doe je niet open!?
+
+Een trap tegen de deur, die splijt...
+
+--- Wat sluit je je op? Doe open! Doe òpen, beveel ik je!
+
+Een tweede trap; de deur splintert breed open, en door die opening wringt Hierocles zich binnen.
+
+--- Wàt sluit je je op... met je Moor? briescht de auriga, zijn Grieksche-heldengezicht verwrongen tot een tronie van wreede drift. Wierook? Bloemen? Het is wèl het oogenblik, om je te laten omhelzen! Smijt open die luiken, opdat ik zien kan... Smijt open! beveelt hij tot Narr.
+
+Maar de Moor, vloek tusschen zijn tanden, ijlt weg, en zelve, met vuistslag, smijt Hierocles de zonblinden open, zoo dat, plotseling, verbijsterend, in de gouddommelige stervenswellust der kamerschemering geheel de zomerdaggloed binnenvlamt en verijlen rozen- en wierookwalm. Op het bedde heeft Antoninus het gezicht, verblind, in de handen verborgen.
+
+--- Hierocles! smeekt hij, bang.
+
+--- Je sluit je hier op, met je Moor? briescht de auriga. Wèl is het oogenblik gunstig gekozen! Rome is in strijd en jij sluit je op! Denk je zóo de macht in handen te houden, ellendige lammeling, die je bent? Weet je, dat het halve Leger, en meer misschien, het snotjong op den Palatinus omringt? Als je grootmoeder je niet trouw bleef, wie en wat zoû je kunnen helpen? Als je dan niet regeeren kan, dan zal ik voor je regeeren, je Gemaal, je verstooten Gemaal, je Gemaal, die zich een week lang verbergen moest!! Denk je, dat ik mij nog langer verberg?? Ik, ik zal voor je re-geeren! Meen je, dat ik nòg langer doen zal als Antiochianus commandeert? Hier, teeken, en dadelijk!
+
+--- Wat moet ik teekenen... Wàt moet ik teekenen... o mijn Hierocles??
+
+--- Je decreet aan den Senaat, die van morgen zal pogen te vergaderen... Dat je Alexander tot vijand der Republiek proclameert, vervallen verklaart van den Caezarstitel, en mij, je Gemaal, naast je verheft tot Caezar en tot Augustus!
+
+--- Hierocles...
+
+--- Teeken!!
+
+--- Hierocles... Wàt geeft het of ik teeken! Ik kan wel teekenen, Hierocles... maar wàt geeft het, als Grootmoeder niet wil... o mijn Hierocles! O mijn Hierocles, hoor even... en sla mij niet! Het geeft niets, of ik dat decreet ook al teeken... want Grootmoeder verbergt haar geld, niemand weet waar...
+
+--- Wil je niet teekenen?! dondert de auriga; zijn vuist sliert bij een arm Antoninus van het bed, over de treden heen... een wierookvaas stort om, de gloeiende kolen verspreiden... de knaap slaakt een gil van pijn... bijna ontwricht hij zijn arm... maar de auriga rukt hem erbarmingloos op: zijn oogen puilen van razernij.
+
+--- Teeken, teeken, of ik vermoòrd je! Denk je, dat ik nog langer „verstooten“ wil zijn, zoo als je me al drie malen verstiet! IK ben Caezar... IK ben Augustus... en teekenen zàl je, of ik tràp je je leven uit je lijf!
+
+Een tweede gil slaakt Antoninus...: om zijn smart, om zijn pijn heeft hij zich lòs weten te rukken, en in die pijn, in die smart rilt een fierheid op; hij voelt zich plots patriciër, hoogepriester, imperator, god, en de verontwaardiging om die verguizing van den ondankbare geeft hem de opgegierde kracht uit te roepen:
+
+--- Augustus? Jij?? Jij, een wagenmenner, dien niet anders dan MIJN gril en mijn làffe liefde verhief aan mijn zij?? Een slaàf, een athleet, dien ik lief had, meer dan mijzelf, lief had, waarom weet ik niet, want heb ik niet vrienden om mij, die mij aanbidden en die in àlle opzichten beter dan jij zijn en meer mijn liefde waard?! Jij Augustus, JIJ keizer, ha-ha, naast mij; Jij deelen in MIJN goddelijke eer... Jij, die...
+
+Hij kan niet voltooien. De auriga heeft zich schuimbrullend op den knaap gestort, in rood ziende razernij hem ranselend met gesloten vuisten, hem neêrkwakkend over den grond, over hem neêr ploffend, de vierkante vingers schroefvast om zijn slachtoffers tengere keel.
+
+--- Daàr heb je voor wagenmenner! En daàr voor slaaf! En daàr, en daàr voor athleet, en daàr voor je gril, en daàr voor je goddelijke eer... En daàr en daàr en daàr voor je vrienden, die in àlle opzichten beter zijn dan ik!!
+
+Schelle kreten van den wringenden knaap weêrsnerpen. Binnen storten Antiochianus, Semiamira, nog in plechtgewaad, tribunen, centurionen... Zij werpen zich op Hierocles; Semiamira trekt haar dolk... maar zij durft niet; tegenover Hierocles is zij moedloos en machtloos... En de auriga wringt zich los en hij buldert, breed staande, wijdbeens, de vuisten gebald, te midden van Antoninus' verdedigers:
+
+--- Wèg van mij! Wie mij nadert, vermoòrd ik! Antoninus zàl teekenen! Ik ben zijn Gemaal, en omdat hij niet regeeren kan, zal IK voor hem regeeren!!
+
+--- Antiochianus!! smeekschreeuwt de keizer, in zijn moeders armen. O, kom niet Hierocles na! Hij vermoòrdt je!! Laàt hem! Goden, hij is tòch, altijd, sterker dan wij allen samen... en ik heb hem, tot mijn noodlot, lief!! Hier, Hierocles, geéf je decreet... Daàr, daàr ik teeken! Ik teeken!! Daar...: je bent Caezar! Je bent Augustus! Naast mij ben je keizer!! Ha-ha, ben je tevreden? Wil je nòg meer zijn? God? Wil je gòd met mij zijn? Daar, daar is je decreet, en laat mij nù alleen! Jullie allen, gaat weg! Laat mij! Hij heeft me geslagen, en ik heb pijn...! Ik wil alleen zijn! Ik wil alleen zijn!!
+
+--- Ellendige Kariër...! dondert Antiochianus.
+
+De twee mannen, de praefectus-praetorio en de Gemaal --- zij stormen op elkander los... maar de vrouwen en Antoninus schreeuwen en de centurionen slepen hen wèg van elkander, ieder een andere kant uit. Het kind is in zijn moeders armen bezwijmd; zijn gelaat blauw opvlakkend gezwollen... Zij heeft hem op het gouden bed neêrgevlijd... O, waarom heeft zij niet dien aterling dóod gepriemd?! Zij heeft niet gedurfd... zij durfde nooit...: zij, die nooit bang is, zij is bàng voor dien man... Als hij haar aankijkt met zijn groote oogen, kan zij zelfs zich niet meer bewegen... zoû zij willen vallen aan zijn voeten... en ze kussen, ze kussen! Zij begrijpt Antoninus' liefde voor hem! En hij is sterker dan éen van hen allen: hij heeft een kracht, grooter dan enkel athletenkracht...: sommige Magiërs hebben dat...
+
+Vasthi, de kleedsters, zijn weenende nader gekomen.
+
+--- De zalf! roept Semiamira. De zalf, gauw...
+
+Zacht klagende, als om een dooden Adonis, nemen de vrouwen handenvol van de zalf, die zwelling doet slinken, en smeren het bezwijmde lijf van den keizer tusschen de wierookvazen, wier geur verijlt... Een verwarring en wanhoop is in het vertrek, de deur in splinters, éen vaas neêrgestort, en de kolen smeulende op het mozaïek; in een hoek ligt Livilla te snikken... Door de wijd open gegooide zonneblinden vlamt de volzomergloed erbarmingloos binnen, en dáar, uit de ruime verte... uit Rome... dáar ginds... stijgt nieuw geruisch... als verklinkend gerammel van wapenen...
+
+--- Wrijf hem, wrijf hem zacht! klaagt Semiamira en over het roerlooze lijf van den knaap glijden de lenige vingers der wrijfsters; zij glijden over zijn oogleden en slapen. O, zij zijn al gewend dat te doen, maar altijd weêr klagen zij en weenen zij, vol erbarmen en vol verontwaardiging. Zij wrijven hem, wrijven hem zacht... en zij hooren niet het aanruischend gerammel... gewend aan al dat geklikklak... Maar Semiamira luistert toe naar de verte... Zij staat aan het raam, gelijkmatig wringend wanhopige handen, want zij gelooft niet meer aan het goede einde! De troepen van Antoninus --- hoe weinige zijn er in de Hoop! --- zegevierende over Alexanders troepen, die meêgezwermd zijn naar het Palatium; Alexander verslagen, het kreng, met zijn kreng van een moeder: Semiamira kàn er niet meer aan gelooven. Waàr blijft Aristomachos? Toen zij vluchtte, naar de Hoop, op een paard, dat een ordinarius haar afstond, vluchtte tusschen de pijlen door van de naar haar mikkende boogschutters... toen heeft zij voor het laatst Aristomachos gezien, als een held, als een hèld, getrouwen van Antoninus verzamelend rondom zich heen en néêr houwende in wie „Alexander Augustus“ riepen...
+
+Neen, zij gelooft niet meer aan het einde goed... En terwijl zij --- alleen, de vrouwen steeds met haar kind bezig --- luistert naar de verte van Rome, en terwijl zij, vol tranen de oogen, staart naar het lijf van haar kind, het godkind, dat zij gebaard heeft, tot blauw òpvlakkens geranseld door een onwaardigen aterling, die sterker is dan zij allen... komt in haar een vage gedachte rijzen aan vlùchten van hier... Maar hoe?? Vluchten, alleen, met Antoninus...? Door de Campania heen...? En dan misschien achtervolgd worden, en smadelijk op smadelijke vlucht gedood? Neen, vluchten is niet voor haar! Nog heeft zij, heeft haar kind veel getrouwen! Waar Aristomachos ook blijven moge, Antiochianus waakt!! Wie weet... wie weet... als de goden gunstig zijn, hoe het Lot nog gunstiglijk keeren kan... Zij ziet uit het raam: over de lager heenglooiende tuinen, en doòr het geboomte ziet zij de wallen: zij glinsteren van de chrysaspiden: de prachtsoldaten, de gouden-schilddragers, nòg in hun schitterendsten wapendos, voor de Consulaire Ceremonie... O, neen, zij moèten nog strijden en, wiè weet, wiè weet, overwinnen, zegevieren op het Palatium... dàn de standbeelden van het kreng OVERAL in de Stad en het Kamp met smáad bezoedelen en doen vernietigen...
+
+--- Augusta...!
+
+Buiten hoort zij een stem, die roept. Zij ziet uit, zij herkent... den eunuch, van Moeder, haar vertrouwdste; hij sleept zich voort, zijn samaar is bezoedeld van bloed.
+
+--- Psammeticus! roept Semiamira. Wat is er? Wat is er??
+
+--- De Clarissima zendt mij...
+
+--- Kom binnen, dadelijk...
+
+Zij opent zelve de deur, die tot het zij-peristylium toegang geeft: de eunuch sleept zich de treden op, sleept zich binnen, en stort aan haar voeten.
+
+--- Psammeticus... ben je gewond??
+
+--- Ja, Augusta... ik sterf! De oproerlingen hebben mij geslierd uit mijn draagstoel, en... Hoor, hoor, Augusta... De Clarissima zendt U en den goddelijken Augustus haar liefde... door mijn onwaardigen mond...
+
+--- Moeder... Moeder... zij is trouw aan mijn kind?!
+
+--- Maar zij smeekt U... en Zijne Goddelijkheid...
+
+--- Wat... wàt te doen... Psammeticus?
+
+--- Te vluchten... vermomd...
+
+--- Te vluchten...?
+
+--- Naar Ostia... Nu dadelijk... Daar een schip te nemen... Hier...
+
+Hij tast in zijn gordel, onder zijn samaar.
+
+--- Hier... gaf de Clarissima... mij voor u...; de oproerlingen vermoedden het niet...
+
+--- Wat??
+
+Hij geeft haar een tasch.
+
+--- Vijfhonderdduizend sestertiën...
+
+Hij is geheel op de vloersteenen neêrgestort; zij voelt zijn adem rochelen over haar voet, dien hij heeft gekust. Zij ziet hem liggen in een plas van bloed...! Hij sterft, hij sterft... hij ligt stil... Zij bergt in haar stola de tasch... Te vluchten, naar Ostia, vermomd, daar een schip te nemen... Is dan alles verloren... Denkt moeder dan alles verloren... O, waarom kwam zij niet zelve... met haar gezag... Antoninus verdedigen? Heeft zij gevoeld, dat zelfs zij, nu dat Antoninus Rome beleedigd heeft en in het gezicht heeft gespuwd... niet meer te redden is?! Haar kind; de god, dien zij baarde, de schat van haar schoot, de parel van hare moederlijkheid! Hoe kon het mogelijk worden, dat de wereld hem niet meer aanbidden zoû!
+
+--- Antoninus!!
+
+Zij ziet, dat hij de oogen geopend heeft onder de zorgen van zijne vrouwen, maar nog wezenloos kijkt hij haar aan.
+
+--- Antoninus...
+
+Hij richt zich half, en ziet aan hare voeten het lijk.
+
+--- Wie ligt daar?
+
+--- Psammeticus... Moeder zond hem... Wij moeten vluchten...
+
+--- Vluchten...
+
+--- Naar Ostia...
+
+Zij is hem genaderd, omhelst hem...
+
+--- Neen, Moeder, neen... Ik vlucht niet. Ik ben te bang om te vluchten. Ik ben te bang: vlucht alleen. Er zijn hier bliksemende vergiften... Als het oogenblik daàr is, dan... Het wàs er al... Maar Hierocles is gekomen... O, het is moeilijk zich zijn noodlot te scheppen! Moeder, vlucht zonder mij!
+
+--- Nooit vlucht ik zonder je, kind! Ik blijf, ik blijf bij je, mijn lieveling! Er is bliksemend vergift ook voor mij!
+
+--- Blijf dan, blijf dan, Moeder! Hoû mij dan in uw armen, tegen u aan. Ik ben zoo bang, ik beef van angst! Hoor... dàar... in de verte!!
+
+--- Daar is strijd, daar is strijd om jou!!
+
+Op de wallen schetteren bucinae, klinken commando's. In stofwolk stuivelen thurmen aan: zij roepen: Antoninus, heil! Het zijn troepen van getrouwen, die zich vereenigen komen met die van de Hoop.
+
+--- Moeder!! klappertandt het kind rillende, dicht tegen zijn moeders borst. Nu wij niet vluchten... komt daar het einde? Daàr!
+
+--- Neen, mijn kind, neen, wees niet bang? Ik hoòp nog! Hebben wij niet Antiochianus? Wacht ik niet ieder oogenblik Aristomachos terug? Zie!! Komen daar niet meer en meer, die trouw om je bleven, die lief je hebben, o, die je nog aanbidden! Zegevieren wij misschien nog niet? Mijn lieveling, wees niet bang: ik ben bij je: nooit vlucht ik zonder je!! Wees dapper, mijn Antoninus! Voor Antiochië was je een held! Je gouden chlamys wuifde! Herinner je!
+
+--- Ik zoû een held weêr kunnen zijn... als ze mij lief hadden, Moeder... en als Hydaspes... Nu, nu ben ik bang!
+
+--- Maar ze hebben je, ze hebben je lief!
+
+--- Zoo weinige... zij, die niet anders kunnen, dan mij lief hebben, omdat zij van Alexander niets hebben te wachten!
+
+--- O mijn lieveling, wees niet ondankbaar!
+
+--- Ik ben niet ondankbaar... maar ik heb het zoo koud... en ik ben zoo bang! Warm zoû ik het hebben... als zij mij nog eéns tegenjuichten!
+
+--- Maar zij juichen, zij juichen, kind! Hoor je! Zij roepen je naam!!
+
+--- Dat zijn alleen mijn chrysaspiden, die àlles aan mij hebben te danken! Die niets hebben van Alexander te wachten. Dat is niet het Volk van Rome! O, de Zon te Emessa is àltijd warmer geweest dan te Rome! Jawel, ik hoor ze roepen, ik hoor ze juichen, mijn arme, mooie, gouden soldaten! O ja, Antiochianus heeft mij lief! Aristomachos, Narr... U, Moeder, Moeder!! Maar verwàrmen eerst zoû mij... de liefde... van dùizenden... van millioènen... die de handen naar mij strekten... die naar mij smàchtten... als vroeger... Dàt heb ik gehad... Dat heb ik niet meer... En omdat ik dat mis... ben ik bàng... voor hun haat... en ril ik... van koû!!
+
+Zijn geheele lichaam trilsiddert in hare armen, hij sluit zijn wimperende oogen, en zijn hoofd op haar borst heeft een popelenden, nerveuzen schok, telkens en telkens weêr. Zoo mishandeld, zoo rillend gebroken, ellendig, zóo koud en bang voelt zij hem mènschelijk tegen haar moederlijf, als zij nog nooit hem gevoeld heeft. Het is of al zijne goddelijkheid, om welke zij vaak zelve vroom heeft gehuiverd, van hem àf is gevallen, aan flarden gescheurd als een etheriesch, gouden weefsel der goden... Zij, moeder, houdt in haar armen een kind, dat het koud heeft van armoede en van angst: meer houdt zij niet... Helegabalus omhelst zij niet, Antoninus zelfs omhelst zij niet: zij omhelst niet meer dan een menschelijkheid, die goddelijkheid is geweest, en zij wordt zich die neêrstorting uit warmen hemel op ijskoude wereld zóo wanhopig hel duidelijk bewust, dat zij uitbarst in snikken en hem smartelijk pletterdicht omhelst tegen zich aan, uitroepend den naam, dien zij hem sedert jaren niet meer gegeven heeft:
+
+--- O mijn Bassianus, o mijn Bassianus, o mijn àrme Bassianus!!
+
+## 10\.
+
+Nog is de nacht niet geheel ommegestarreld...
+
+Maar een vreemde dageraad rossigt eerder dan in het Oosten op in het Westen... over Rome... een dageraad van smokenden brand, die over het nog donkerste deel van de koepellucht uitgolft, als eene de laatste sterren verwinnende opkronkeling van donkerdere dan luchtwolken, waartegen, gezien van de Hoop, de Stad vaal aanvlakt en uitblokt en neêrheuvelt en opzuilt met paleizen, en tempels, die sidderen tegen dien kim van purperen hette: een gloeihaard van verschiet tusschen hun ijle portieken door...
+
+O, niet meer dan enkele honderden, duizenden misschien zijn samengevloeid de getrouwen van Antoninus, en al zijn dicht bezet met lansengeflits de wallen rondom de tuinen, al vangen schilden bij langwerpige schilden den weêrschijn op van dien brandenden dageraad ginds... Antiochianus, schor, schreeuwt zijn buldercommando's uit met een hart, dat zinkt, nu wapengerammel genaderd is tot voor de hoofdpoort der eucalyptuslaan... nu hij plòtseling hem, dien hij den heelen nacht al verwachtte... Aristomachos... ziet op een schild gedragen... door zijn soldaten, die hem niet tot onteering achter willen laten vóor het Palatium... Den tribuun is breed zwaardgehouwen den schedel, verbonden in bloeddoorweekten doek... aan de maliën van zijn rusting is geronnen het bloed, dat niet door kan sijpelen... en zoo leggen de soldaten hem neêr... op de sigma van het Peristylium, waar Antoninus gewoon is te liggen en uit te kijken over de vage Campania...
+
+--- Antoninus! roept de tribuun. Antoninus!!
+
+De keizer, een schim, bleek van angst, met holle groote oogen, trots de al in deze vroege ure heete volzomerzwoelte huiverend, in eén gekrompen in een haastig omgeslagen dalmatiek van hermelijn, is verschenen... met zijn moeder... op den drempel van het binnenhof... Hij wankelt, hij durft niet verder... zijn oogen, vol ontzetting, puilen in zijn bloedeloos bleek gelaat... Zijn bibberende handen trekken dichter den mantel, waarin hij als inkrimpt, verschrompelt, verdwijnt...
+
+--- Antoninus! roept de tribuun.
+
+--- Aristomachos! snikhuilt het kind uit. Ben je gewond? Ben je gewond?!
+
+--- Ginds... voór het Palatium... Wij waren velen... Ik had voor je, Antoninus, den Palatinus willen veroveren... O, het was geen dwaasheid: wij waren zoo velen... je àllen trouw... Maar zij... helaas... zij hadden... de overmacht... Je zal zien misschien, Antoninus, als je morgen met Antiochianus... zegeviert... àl hun lijken... om het Septizonium, dat brandt... àl de lijken van wie je trouw bleven... wie je aanbaden... tot hun dood toe... Antoninus, ze hebben me... op een schild... gebracht tot hier! Om je te zièn... voor het laatst te zien...! Herinner je...: voor het eerst... zag ik je te Nicomedië... Ik kwam met Antiochianus... met het gezantschap... om je over te brengen de hulde... van den Senaat, de liefde van Rome... Toen ik je zag voor het eerst.,.. Antoninus... dànste je... Je danste... Je lachte ons toe... Ik heb het nooit vergeten: je lachte mij toe... Je lachte mij toe, Antoninus... Je wrong je, ik zàg je... en ik had, daár, op dat oogenblik, voor je kunnen sterven... zoo als ik nù voor je sterven zal...
+
+Het bloed gulpt onder den verbanddoek door, en het loopt langs de bibberende handen des keizers, die de tribuun gegrepen heeft om ze aan zijn baardigen mond te brengen met zijn allerlaatste liefdegebaar... Maar een tumult van priesters, Magiërs, dwergen, deernen, slaven en kinderen, waartusschen wilde dieren brullen is van links... is van rechts... uit àlle gebouwen der Hoop, om den Tempel en het Paleis aangezwollen... en het vertrapt elkander, duwt elkaâr weg, om te schuilen niemand weet waar... Want tusschen hen schreeuwt Gordus in doodesangst:
+
+--- De chrysaspiden op de wallen bezwijken voor Alexanders argyraspiden!!
+
+Het is de overval, onverwachts. Langs de eucalyptuslanen kletterklattert het razend metaalgeslaag als op gongen, van zwaard op schild en ratelen de lansen rikketakkende tegen elkaâr... En stemmen van daar donderen al in den achtertuin door...
+
+--- Waar is die? Waar is Avitus, het hoerekind! Waar, waar is Sardanapalus! Godendief! Heiligschenner! Hier met hem, hier! Hier met de kerels, die hem bedienen! Hier met den Zwarten Steen!!
+
+Van rechts en van links... van alle zijden... om het Paleis en den Tempel zijn de argyraspiden alleén niet, zijn clibanariï en hastati in dichte, dichte orde gedrongen, uitroepende Alexander heil en wèg met Sardanapalus... Daàr, over de Campania is de zon opgegaan; ginds, in den vaalbleeken morgen vlakblokt en zuilt Rome uit tegen een feller verschiet van gloeihaard... En meer en meer, dringend in orde dicht, stuwen de argyraspiden op, de clibanariï, de hastati, tusschen hen vele Barbaarsche auxilia, die op dit oogenblik plunderen slechts willen... Zij hebben allen, in enkele minuten, overvuld de tuinen, den tempel en zelfs het binnenste van het paleis. Zij zwermen uit alle deuren, in alle portieken; hier steken zij overhoop, daar slachten zij met houw op houw. Twee reusachtige Magiërs, de sarapis opgekoppeld rondom hun lendenen, hebben ieder een Syriesch zwaard gegrepen, en zij hakken blindelings in de clibanariï, die hen omringen; de rustingen splijten in vonken schietende stukken; de dwergen hitsen de leeuwen aan, maar de beesten, bang en tam, vluchten en worden afgemaakt in een hoek. Met afgesneden snuit, razend van pijn, met bijna menschelijk gebrul, rent een olifant rond en vertrapt lijken en stervenden tot eén moes van krakende beenderen en uitspattend bloed; deernen vlieden voor de graaihanden van de geweldenaren in de hoeken der portieken en schreeuwen daar hare verkrachtingen uit, en sterven daar, gemarteld, onthalsd, geworpen op elkander bij hoopen. Het zijn veliten, die Gordus hebben omringd, hem afsnijden het lid, dat zij razend vertrappen, hem een lans tusschen de beenen hebben gedrild en hem zoo ronddragen, lillende trofee, druipend van bloed; het zijn de argyraspiden zelve, die Murissimus en Protagenes hebben gevonden in hun schuilhoek achter de bronszware gordijnen des tempels, en hem te voorschijn sleepen, en kerven over de eerst ontmande lichamen, in hunne monden de afgesneden leden gestoken. Maar om den Zwarten Steen, die daar rijst, gaat om een razend gejuich, een brullend gebulk, en met koorden sleepen zij den Monolieth naar buiten, een fallus, zoo zwaar en zoo zwart en zoo groot, als nooit werd aanschouwd, als uit Emessa moest komen om Rome in naam van de Zon te verkrachten, en zij houwen op het bazalt, tot het splintert en splijt en die stukken, volhardender steeds gehakt, vergruizelen als tot steenkool en git, maar zij kùnnen niet geheel den Steen gruizelen...
+
+En zij zoeken, zij zoeken, en vinden niet... Waar is het hoerekind, en is de hoer, zijn moeder, niet ook hier? Waar is het hoerekind, met zijn meidesmoel, waar is de godendief, heiligschenner, waar is de beleediger van Rheia Kubele, van Vesta, van Rome, van heilig Rome? Zij zien wel Antiochianus en zij zien wel Hierocles; die verdedigen hun leven tusschen de lansen der laatste chrysaspiden, belachelijk prachtiglijk in hun gouden ceremonie-rustingen, tusschen de laatste Magiërs, fatalistiesch met verklaarde transe-oogen vechtende als helden en sneuvelend in extaze, den naam van Helegabalus op de lippen, als straalde hun open het heilige Licht. Maar waar is het hoerekind? Dichter zwellen, zwellen, zwellen de overwinnende troepen aan naar de Hoop, zwellen de wallen over en poorten door, zwermen door het paleis alle kamers door, doorsteken het bedde in Antoninus' eigene kamer, rukken de gordijnen weg, priemen in kussens en in gewaden, breken open kisten en kofferen. Wàar is het hoerekind? Zij vinden hem niet... maar zij zien bóven de helmhoofden der juichende argyraspiden Hierocles... ha! de gehate Kariër... plots omhoog verheven op een paal, die hem gedreven tusschen de beenen dwars in de lengte zijns lichaams is... Ha, de Caezar Augustus, volgens het laatste decreet van het hoerekind! Dàar heb je den Caezar Augustus, volgens het laatste decreet van het hoerekind, in den Senaat met minachting verscheurd, vertrapt en bespuwd! Zie den Caezar Augustus! Heil den heerlijken Caezar Augustus, den schitterenden Hierocles, die naast het hoerekind heeft willen keizer zijn! Aurelius Alexander, Caezar Augustus?? Wel neen, dàar heb je den Caezar, dàar de Augustus, daar op die paal, heil! Boven de hoofden der argyraspiden! Diï te servent, Hierocle... heil, eeu-wig heil!! En heil den praefectus-praetorio, hier met hem, hier, sleept hem hier, houwt hem neêr, sleept zijn onthalsden tronk toch hier en bind dien samen aan dien van Aristomachos, die zoo rustig te slapen lag op Antoninus' eigene sigma! Hier, bindt ze aan elkaâr, en sleept ze voort tot hun imperatorentriomf; roept ze heil, die beide barre soldaten, die verliefden op het hoerekind, het hoerekind, dat ze liet versmachten! Maar waàr is het hoerekind zelve??! Waar is de Hoer, zijn moeder? Velen van die soldaten hebben haar gehad in de Subura, of brallen er op, en ze hebben ook Antoninus gehad, voor een halve aureus, voor een as, voor niets! Maar waar verschuilen zij beiden zich?! Houwt nog hier, priemt daar, steekt hier, kerf, breek open, splijt, verbrijzel, vermorzel, steek dan de boel in brand, de boomen, de vela; zoek, zoek, zoek; waar is hij? Waàr verbergt hij zich! Getrouwen heeft hij niet meer; zij zijn allen geveld, gevild, doorstoken, doorboord, onthalsd, gepriemd, gegooid op een hoop in den brand, gevierendeeld de leden, van een gereten, en de mannelijkheid hun afgesneden, afgehakt, afgespietst, òpgespietst, rondgedragen, in de vijvers gesmakt met het steenkolen en gitten gegruizel van dien grooten, zwarten en maar niet vernietigbaren Fallus van Helegabalus... Waár is het hoerekind? Zij razen nu, dat zij niet vinden... Zij hebben toch héel dat paleis doorwroet, heel dien nu opvlammenden tempel met hun lansen doordrild, alle die tuinen en heuvelen op-, af- en weêr opgeloopen... Maar wàt moet die Moor, die daar staat met zijn hakbijl en houwt, en houwt... Drie, vier argyraspiden heeft hij neer gehouwen! Neêr met hem, neêr, neêr... Het is Narr, het is hoerekinds Moor... Neêr met hem, neêr, neêr... Maar wàt stond hij daar voor diè deur juist... Breek open, splijt, verbrijzel, vermorzel aan splinters de deur, die schijnt dichtgespijkerd... Een infekte lucht van de slavenlatrinen walmt zoel uit als met een wolk van stank... Aan splinters eindelijk de deur! Ha...a...a! Hà...a...a!! Daár... dáár staat hij!! Daár is het hoerekind, daar staat hij, in de armen staat hij van de hoer, die zijn moeder is! Ha...a! Ha...a...a!! Daar... daár staat hij met zijn meidesmoel! Hièr met hem, hièr! Hièr, de godendief, heiligschenner, de Syriër, het verdorven beèst, dat Rome vergiftigd heeft en ontkrachtigd; hièr met hem, hièr...
+
+In de enkele seconden, die het kind nog ademt, bang, bàng, rillende stervende alleen al van angst in de stikkende omhelzing van zijn moeder, die schreeuwt... in die enkele seconden gaat door hem heen een snelle smachting... naar den dondersteen met het bliksemend vergift, dien hij verzuimd heeft bij zich te houden... naar den Toren der Gemmen, ginds in het Palatium, waar hij in schoonheid had willen sterven... Maar na die zoo heel snelle smachting --- en àl voelt hij de wraakverblinde razernij van het Volk hem pestademend tegenstinken, stinkender dan de zwoele walm van der slaven uitwerpselen daar ginds --- blinkt voor hem op een helle figuur en hij ZIET HYDASPES, DIE HEM AANZIET MET HEEL GROOTE TRANSE_OOGEN EN BEIDE DE HANDEN TOT HEM REIKT... Het is het laàtste, dat hij ziet... want hij bezwijmt van smart en van angst in de hem stikkende omhelzing van Semiamira! Hij hoort niet meer zijn moeders kreten. De spiezen drillen zijn lijf aan het hare, tienmaal, twaalfmaal, twintigmaal, maar, de spiezen uitgerukt, laten de lichamen los van elkaâr, bloed overstroomd, bloed overgulpt... O, hem nu te beleedigen! Met het lijk van de hoer, het lijk van het kind te wentelen zonder afschuw voor de eigen handen in de drek, die daar bij hoopen stinkt, er hunne monden meê vol te proppen, er hunne smoelen en lijven meê te zoedelen, tot zij geen menschelijke kleur meer hebben en dan hèm een scherpe haak --- hier! --- geslagen in de maag --- maar neen, die scheurt open --- geslagen in een lis om zijn voeten gestrikt en hem trekken, trekken, trekken, doòr de drek heen, de latrinen uit... Hièr, hièr is het Hoerekind!!! Door de tuinen en langs de lange lanen onder de knetterbrandende eucalyptussen over het stof van het voorplein, naar Rome, naar Rome, een zegeweg lang naar Rome... Eerst hem getoond op de area-palatiï --- komt Alexander Augustus niet kijken?? --- door het Forum heen en verder... Hier, in een riool hem maar laten verzinken... zoo... zoo... met zijn kop naar beneden... neen, dat gat is te klein: kan de kop van dat meisjesventje waarachtig niet in die cloaca... Verder, verder dan maar weêr trekken: hièr, hièr, stroomt àllen samen, komt hier kijken, Quiriten: hièr heb je Avitus, Sardanapalus... hièr heb je hem... hier: kijk eens... Herinner je hoe hij met diè voeten kon dansen? Herinner je je hoe lief het beèst er kon uit zien? Herinner je je hoe ze wierook brandden en wijn plengden voor zijn beeltenis in de Curia Julia?... Herinner je je? Trèk hem verder, verder, verder, vlug op een drafje, trèk hem de stad door... ho!... laat die los? Wéêr de haak in de lis om zijn voeten en vèrder, vèrder... dat heél Rome hem ziet...
+
+Een horde van volk draaft meê, draàft, omdat, die trekken het lijk het op een loopen hebben gezet --- draàft meê achter het schots en scheef bengelend, tot onherkenbaarheid toe bezoedelde, bloed uittappelend overschot menschelijkheid, dat de éerstkomenden nog trappen en trappelen en trampelen, soms er over struikelend, strompelend en duwend elkander in jool er dwars overheen, overheen... In die horde van volk draaft meê vooraan een Moor, dien zij niet meer weten, niet herkennen, niet achten, omdat hij draaft als zij allen; wel is hij gewond, maar velen zijn daar gewond --- het bloed stroomt gemakkelijk heden, en niemand, die acht het bloed ---: een houw hieuw hem overdwars door zijn gezicht en telkens slurpt hij zijn bloed op en slikt het in; over zijn borst striemt het rood; hij hinkt, en schijnt maagpijn te hebben groot, want een lendedoek heeft hij vàst zich om maag en buik heen getrokken, en terwijl hij draaft, mede draaft, met de joelende, lollende bende --- zijn oogen strak puilend gericht op dat vormelooze bezoedelde, dat zij ginds, op een drafje, hossende voorttrèkken, trèkken, trèkken naar den Tiber toe, in de richting van den Pons Aemilius, stouwen zijn handen tegen dien lendedoek, als stopten zij telkens een zwaar pak naar binnen; iets, dat hij te verliezen schijnt... Zoo hinkt hij, draaft mede, de Moor, slurpend zijn bloed, dat neêrgulpt uit den houw over zijn neus, starend zijn puilende oogen op wat zij nog voorttrekken daar... en stouwend en stoppend telken male het pak, het zwaar ontglippende pak... Van den brug, omdat het riool nu eenmaal te nauw was, smijten zij dat gesleepte daar in den Tiber, omdat zij het lang genoeg hebben gesleept en nu terug willen naar het Palatium, om Alexander Augustus heil te roepen... Weg, weg met hem in den vloed, die te goed nog is voor zijn overschot... Nauwlijks enkelen kijken toe, hoe het lijk, dat het water erbarmend òverwascht, voortdrijft meê met den stroom... voortdrijft met àndere lijken meê... onder de zonnelucht, die ros is overwalmd van de smokingen verder op en dichtbij...
+
+Nauwlijks enkelen, die toekijken... Onder die enkelen de Moor, die een smartkreet heeft uitgeschreeuwd, een kreet tè smartelijk voor pijn alleen, die hij om zijn wonden mocht hebben... En van de brug, op de zelfde plaats waar wat gesleept werd, werd wèg in het water gesmeten, smijt zich de Moor in het water en terwijl hij springt, verliest hij zijn lendedoek en zièn die andere enkelen, dat hem zijn ingewand vloeit lillende diepe buikwond uit. De Moor! De Moor!! Zij herkennen hem: de Moor van het Hoerekind... Zie, hij drijft mede met den stroom; zwemt hij, zwemt hij nog waarlijk...? Ja, ja zie, hij zwèmt; een slag, nog een paar slagen: zie, hij heeft bereikt het lijk... het lijk van Antoninus... zie, zijn armen... o zie toch!... omhelzen Antoninus' door den Tiber gewasschene voeten, voeten, die dànsten eenmaal... het éenige, wat van dàt dáar herkenbaar nog is...!! Zie, zijne lippen drukken zich er op tot een zoen... Zie, zij drijven samen; wèg, weg drijven zij samen...
+
+Wàt hier nog langer te staan? Wat hier tijd te verliezen? Naar het Palatium! Naar het Palatium! Heil Aurelius Alexander Caezar Augustus! Heil Alexander Augustus!!
+
+## 11\.
+
+---
+
+--- O, vlekkelooze Alexander, de goden behoeden u! Onverbeterlijke Alexander, de goden behoeden u! De goden hebben u ons gegeven: mogen de goden u nu ons bewáren! De goden verlosten u veilig uit de tyrannie van den Alleronzuiverste; mogen nu de goden u eeuwig omringen! Gesmacht hebt gij onder de macht van den Rome bezoedelenden dwingeland, verzucht hebt gij, als wij allen, onder het juk van den allerwellustigsten aterling: de goden hebben hem uitgeroeid; de goden behoeden u nu! Dien schandvlek van een keizer, naar recht werd met hem gedaan! O, wij gelukzaligen nu onder uw rein gezag; o gelukkige Republiek van Rome! Met schande en met smaad werd die Alleronzuiverste door Rome geslierd ten voorbeeld aan alle onzuiveren; met den bezoedelaar onzer Romeinsche eer is naar wet en naar recht geschied: nu geven de goden een lang leven ù, o Alexander, door wien zich het oordeel der Onsterfelijken klaar openbaarde, met ùwe redding, o Alexander, o vlekkelooze Alexander, onverbeterlijke Alexander!
+
+Door de blanke zuilenruimte van den Tempel der Concordia --- daar waar de Senaat is vergaderd --- galmen blank eentoniglijk de woorden van den orator, die wijd uit zijn laticlavia gebaart, staande hij voor den keizer, Aurelius Alexander, recht, stram, en stijf de knaap getroond op zijn marmeren troon, tusschen de lagere tronen der Moeders, die van Julia Mœza, die van Julia Mammea, achter hen en aan beide zijden de Consuls, de Praefekten van Leger en Vloot en Stad en Schat. De jonge keizer verroert zich niet; bleek is de knaap van aandoening, blank is zijn tuniek en zijn toga blank --- zonder eén vonk van goud of juweel --- en nu hij ten laatste lichtelijk het hoofd heeft gewend naar zijn Moeder, schijnen hare murmelende lippen hem te beduiden, dat hij nòg nièt op moet staan... Aan zijne andere zijde zit, roerloos, stijf omprachtigd in goudgele palla, de Grootmoeder, zij geene Senatrix meer, nièt dan een plots heel oude vrouw, achter wier aandoeningloos masker van vroege rimpels, in grijze golving van haar, met nergens heen het àl overstarende oogen, en lippen dun in durend zwijgen gedrukt, nauwlijks is te doorzien de ontroostbare rouw over Antoninus, dien zij meer lief had dan zichzelve en met wien hare eerzucht gedóofd is... Ter Curia Julia --- verbrand in het oproer --- is zij de Almachtige geweest; hier is zij niet meer dan de Eerwaarde: een wrokkende, zwij-gende, heel oude vrouw, ouder dan hare jaren zijn, zoo wrokkende, zoo zwijgende, dat noóit zij meer hare lippen zal openen tegen Volk en Senaat, die zij stil in zich zal haten blijven, om misdaad aan Antoninus voltrokken. Zoo wel aan haar rouw, als aan haar wrok, als aan het geheim van haar rijkdom, dien zij bewaart, niemand weet waar, is haar stilzwijgen als met een slot geklonken; wèg schijnen hare gedachten gezweefd; niet schijnt zij bewust zich getroond te zijn naast haar kleinzoon Alexander Augustus en niet schijnt zij te hooren de woorden der volgende, stemluide oratoren, blank hol doorgalmend de blanke halruimte, waar in het hel blinkend weêrkaatste licht de witte laticlavia's, purpergerand, als porfieromzoomd marmer van standbeelden plooien.
+
+--- Antoninus Alexander, de goden behoeden u!
+
+--- Aurelius Antoninus, de goden behoeden u!
+
+--- Antoninus, Antoninus Pius, de goden behoeden u!
+
+--- Wij smeeken u, o Alexander; neem aan den naam van Antoninus!
+
+--- Breng, Alexander, die hulde den edelen keizers, die droegen den naam!
+
+--- Zuiver den naam Antoninus!
+
+--- Schande bezoedelde den naam: Alexander, zuiver den naam!
+
+--- Herstel in eere den naam, den meest geliefden naam: Antoninus!
+
+--- Wreek Marcus Aurelius, wreek Verus, wreek den smaad Bassianus Caracalla gedaan! Zij droegen den zuiveren naam!
+
+--- Helegabalus slechts heeft in slechtheid overtroffen den slechten Commodus!
+
+--- Helegabalus wàs geen keizer, geen burger, geen senator, geen Consul, geen man, geen Romein, geen Antoninus!
+
+--- Helegabalus was geen Antoninus!
+
+--- Lang leve Antoninus Alexander, opdat het leven ons zegen zij!
+
+--- Drage Alexander den naam, den naam van Antoninus!
+
+--- Dat het een Antoninus zij, die wijde den tempel der Antonijnen!
+
+--- Dat het een Antoninus zij, die zegeviere over Perzen en Parthen!
+
+--- Dat hij, geheiligd zijnde, drage een heiligen naam!
+
+--- Dat hij, zuiver en kuisch, drage een kuisch zuiveren naam!
+
+--- Antoninus! Antoninus!
+
+De knaap, bleek van ontroering, maar stijf, stram en recht, is, op nauw zichtbaren wenk zijner Moeder, gerezen. En zijn stem, die stottert, klinkt lispelend, onhelder eerst, dan keelgeschrapt, helderder:
+
+--- U zij mijn dank, o Patres Conscripti... niet van af heden, maar van af den dag, dat... dat... dat gij mij eerdet met den titel van Caezar...
+
+Mœza ziet starende òp; zij denkt aan Emessa; daàr, door het Leger, met Antoninus keizer, werd Alexianus Caezar geroepen, niet door den Senaat, niet door den Senaat: door het Leger, en door haàr almacht slechts...
+
+--- ...En u zij mijn dank dezen dag voor... voor de titelen van Augustus en Pontifex Maximus, voor het Imperium en de Tribunicia Potestas: waardigheden, waarmeê gij mij, onwaardige, met nog nimmer geziene mildheid, onverdiend overstelpt op een enkele stonde...
+
+--- Gij naamt ze aan, gij naamt ze aan, gij naamt aan al die waardigheden! O, dat de naam van Antoninus u waardig schijne de uwe te zijn; dat de Senaat van een Antoninus ù waardig schijne te zijn! Antoninus Augustus, de goden behoeden u! Dat de goden in u een Antoninus behoeden en dat de naam van Antoninus onze munt weêr worde gegeven...
+
+Maar de knaap, een weinig verward door het enthouziasme der senatoriale oratoren, die hem in de rede vielen --- de rede, van buiten geleerd --- gaat moeilijkjes voort, als hadden niet hunne blanke stemmen hol weêrgalmd:
+
+--- Maar hoe dankbaar, o Patres Conscripti, ik ben aan Volk en Senaat van Rome, toch bid ik, dwing mij niet op de moeilijke taak een zóo roemrijken naam te dragen, als den mijne, dien men mij later gaf, mij reeds toeschijnt boven mijn krachten. Zoo roemrijke namen zijn zware last... Uwe clementie herinnere zich de goddelijke hoedanigheden der Antoninï... Wie was vromer dan Pius? Wie geleerder dan Marcus Aurelius? Wie vlekkeloozer van gemoed dan Verus? Wie krachtiger krijgsman dan Caracalla? Niet spreek ik van Commodus, en Diadumenos stierf te jong om den naam, dien Macrinus hem gaf, te verdienen... Nauwlijks waag ik te herinneren aan den Alleronzuiverste, die dorst nemen den naam tot smart van het Romeinsche Rijk, en die bezoedelde door schandelijkheid en losbandigheid... den glans... den glans... van den naam...
+
+Hij stottert, hij weet niet verder; zijn blik, zijlings, heeft de trilling opgelet, die zijner Grootmoeder strakke roerloosheid heeft oversidderd, maar nauwlijks de stijve prachtplooien van haar palla heeft kunnen veranderen... En omdat hij niet meer weet, en plots ophoudt, vallen-in de oratoren, staande, met breed gebaar, wijd uit laticlavia:
+
+--- De goden bewaken ons voor herhaling van dèrgelijk onheil!
+
+--- Wij vreezen niet dergelijk onheil, zoo lang gij regeert, o Alexander!
+
+--- Wij zijn veilig onder uw hoog gezag!
+
+--- Gij zegevierdet over de Zonde!
+
+--- Over den Misdaad!
+
+--- Over de schaamtlooze Schande!
+
+--- Den naam zullen uwe deugden versieren!
+
+--- Niets dan goeds spellen de voorteekenen: vol vertrouwen zijn wij in u!
+
+--- Wij hadden u lief als kind al!
+
+--- Zoo als wij u thans beminnen!
+
+De knaap heeft zijn gelaat toegewend naar de murmelende lippen van Mammea, en als het gegalm is verklonken, herhaalt hij iets vaster van klank, maar zenuwachtig lisplend met Syriesch accent:
+
+--- Indien ik, o Patres Conscripti, weiger aan te nemen zoo eerbiedwaardigen naam, weiger ik noch uit kleinachting, noch uit vreeze zelve te zullen vervallen in zonde, misdaad en schande... Maar eerstens zoû ik bezwaard zijn met den naam eener familie, die de mijne niet is... en tweedens ben ik te zwak... zoo zwaar-wichtigen naam te torsen... Want zoo ik aannam den naam van Antoninus, zoû ik kunnen aannemen dien van Trajanus... van Titus... van Vespazianus...
+
+--- Heet Antoninus, zoo als gij heet Augustus!
+
+De knaap aarzelt, en zegt dan zijn murmelende Moeder na:
+
+--- Augustus was stichter des Rijks: alle keizers, na hem, noemden Augustus zich, met eerbiedige nagedachtenis...
+
+Hoog en hol weêrchoênd weêrdavert het galmen der overredende senatoren na Alexanders kort antwoord door de geluidelijke tempelruimte... Maar de knaap maakt niet meer dan eéne beweging, stram en streng, van afwering, beslist schuddend zijn hoofd in ontkenning. En omdat hij zoo stram en streng weigert, daveren de juichingen uit, ook al verwierp hij zeer groote eere, en het klinkt, het galmt, het wéêrdavert:
+
+--- Alexander Augustus, dàn behoeden de goden u als Alexander Augustus! Dàn behoeden de goden uw zedigheid, wijsheid, goedheid en kuischheid! Nù weten wij, hoe gij zult zijn: uw woorden spellen het goede alleen! Wijd, Alexander Augustus, den tempel der Antonijnen (waartoe nooit Helegabalus hoorde!) Onze Caezar, onze Augustus, onze Alexander, behoeden de goden u! Wees immer onoverwinlijk, wees eeuwig gelukkig, leef lang! O, groóte Alexander, behoeden de goden u! Gij weigerdet den naam Antoninus; duld, dat wij u noemen: Groot! O, groote Alexander, de goden behoeden u!!!
+
+Maar, het kind, naar Mammea luisterend --- want onverwachts is deze uitgalming der senatoren, hakkelt zacht, voorzichtigjes aan:
+
+--- Gemakkelijker... Patres Conscripti... ware het mij geweest den naam Antoninus aan te nemen dan aan te nemen den bijnaam van Groot! Waarom zoudt gij mij noemen: groot? Wat heb ik voor groots gedaan? Alexander van Macedonië nam dien naam slechts na schitterende zeges. Dringt dus niet verder aan... o, waardige Patres Conscripti, en... beschouwt mij --- het is een gùnst, dien ik vraag --- niet anders dan als eén van u allen...
+
+Mammea is opgerezen, als ware dit verzoek van den keizer een teeken, dat de vergadering eindigt, en omdat zij rijst, rijst ook de oude Mœza... O, achter heur aandoeningloos masker van rimpels in grijs golvend haar is nauwlijks te ontwaren de ontroostbare rouw over het kleinkind, dat zij meer dan zich lief had... dat zij hier... door Alexanders mond hoorde verguizen... dat zij hier van zijn naam, waarmeê zij hem drie jaren noemden, hoort ontrooven, maar, terwijl zij rijst, zien hare hooghartig nergens heen starende, het àl overdwalende oogen... den Tempel daar ginds... in Emessa... het heerlijke kind zich wringend in den Dans... ziet zij nog eens de zestigduizenden, die zijn gekomen van Tyr, van Sidon, van Damascus, van Heliopolis, zelfs van Jeruzalem... ziet zij nog éens --- o, zóo lang is het niet geleden! --- de razende extaze en de smachtende liefde der zich dood pletterende Menigte... de handen, die strekken... de kussen, die vliegen... en ziet zij vooral het kind, het aanbiddelijke kind, het godschoone kind, het wonder, dat hij was: te groot wonder, te aanbiddelijk, te godschoon voor deze wereld, waarheen hem verbande het Onuitsprekelijke Licht en vernederde om ondoorgrondelijk noodlotmysterie... ook al incarneerde hij, zooveel hij vermocht, in de Man-Maagd, de Middelaar, de Zon op Aarde, in de grootste godheerlijkheid, die op aarde ooit was en wezen zoû...
+
+Het geplooi van de laticlavia's verwappert langs de treden van den Concordia-tempel en ginds zuileschittert het Forum op, statue-bekroond: Romes vermarmerde ziel, vòl vermarmerde hulde van eerzuilen, vol vermarmerde vroomheid van tempels... Over heel die marmeren koudheid, koud trots een gloeienden zonneglans... heeft warmer gegloeid de mystieke glans van een Berg van Licht... Niet velen hebben dien glans ànders gezien dan als rosse brand van buitensporige botvierende pracht- en wellust, maar Mœza, den rouw in het hart, de tempeltreden afdalende aan hare dochters zijde, achter den keizer --- het stramme kind, dat zij weldra Severus noemen --- wéet, dat zij, Dochter der Zon, dien glans heeft gezien en bemind als aanbiddelijke schoonheid --- hoe, helaas, ook die schoonheid afdwaalde van de goddelijkheid, waaruit ondoorgrondelijk geheim van Incarnatie-op-aarde haar verstiet...
+
+Langzaam is zij gegaan, door der Menigte daverend gejuich; ginds wacht de lectica de beide Moeders, achter Alexanders blanke paard... En Mammea aldaar wacht eerbiediglijk de talmende oude vrouw, opdat zij eerst instijge... Maar Mœza ziet den Praefekt van den Schat, Gordianus, waar hij zich diep voor haar buigt, en zij reikt hem de bevende hand tot kus... Zij voelt hèm sympathiek met hare eigen gedachten... En zij zegt --- haar allereerste woord dien morgen --- héel zacht, nauwlijks hoorbaar:
+
+--- Ik kan hem NOOIT vergeten...!
+
+--- Ik bewonderde hem altijd, fluistert Gordianus Junior in zijn handkus op die bevende vingers; en als U, Eerwaarde, vergeet ik zijn aanbiddelijkheid NOOIT!
+
+Hij staart Julia Mœza na... hare eunuchen helpen haar den draagstoel bestijgen... De Toekomst...? Als een golf komt het plots over hem... Zoû de Toekomst hèm, Gordianus, pùrper zijn...? Purper... van màcht... of van bloed... of purper... purper van beiden!! Hij... het aanbiddelijke kind... zag eenmaal purper in zijne, Gordianus', oogen! Een rilling plots overvalt hem... maar de zwerm van zijn cliënten omringt hem en Sertorius, vertrouwelijk, vraagfluistert hem in:
+
+--- En wat zegt Uwe Verhevenheid van de toespraak van Alexander Augustus?
+
+--- Verstandig... koel... zuiver... en slim overdacht... de toespraak en naamweigering van de Augusta Mammea, fluistert Gordianus spottend terug --- nog bleek van het voorgevoel, dat hem onverklaarbaar deed rillen. Het was zuiverder Latijn, dan ik had durven hopen. Maar, goden! wat een accènt van onzen „onverbeterlijken“ Alexander!
+
+--- Goden, wat een accènt van onzen „onverbeterlijken“ Alexander!! spot hem vleierig zijn geestigheid na de zwerm van cliënten, vrijgelatenen en tafelschuimers...
+
+Gordianus slingert zich op zijn paard; neemt zijn rang in ter zijde des keizers onder de hoogste bekleederen van het „recht van het zwaard“... Zie, onder de daverend juichende Menigte, die tallooze somber gekleede, monnikachtige, slaafsch jubelende Christenen, hopende op den tempel, dien Alexander Severus, minachtend het orakel der Magiërs en hoog achtend der Christenen leerstellingen, hun weldra in Rome zal gunnen...! Neen, de jonge Romein weet de Toekomst NIET, ook al voorgevoelde hij eigen purper... purper van màcht en bloed beiden... maar wèl is hij, de denker, de epicurist, zich weemoediglijk bewust... van een Antieke Schoonheid, die, helaas, verwelkte... en een Antieke Vroomheid, die weldra wijkt...
+
+Nice
+
+Nov. 1904 --- Nov. 1905
+
+Lijst der Romeinsche keizers in den roman genoemd.  
+Marcus Aurelius	161-180
+Commodus 180-192
+Pertinax. Julianus 192-193
+Clodius Albinus	192-193
+Pescennius Niger 193-194
+Septimius Severus 193-211
+Geta 211-212
+Bassianus Antoninus Caracalla 211-217
+Macrinus. Diadumenos 217-218
+Helegabalus	218-221
+Alexander Severus 221-233
+Maximinus de Thraciër 234-238
+Gordianus 1 en 2 238
+
+N. B. Keizer Aurelianus, 270-275, de overwinnaar van Zenobia en zoon eener Zonnepriesteres, heeft vijftig jaren na den dood van Helegabalus de te Emessa weêr overgebrachten Zwarten Steen in den Zonnetempel aldaar met eerbiedige herinnering aan keizer Helegabalus aanbeden.
 
 ...
