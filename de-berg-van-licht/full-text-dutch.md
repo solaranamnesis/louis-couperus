@@ -2882,4 +2882,362 @@ De Menigte, die het Helegabalium overvuld heeft, stort zich in de volksmassa, di
 
 ## 11\.
 
+Te midden van de ontstemmingen ten Paleize bleef te vergeefsche verzoening betrachten de Grootmoeder Mœza, overstelpt aan beide zijden, door Semiamira, Mammea, en zoó lief in dwepende aanbidding had zij Antoninus, dat zij Mammea niet kon gelijk geven, hoewel zij toch duidelijker, iederen dag, Alexianus --- Alexander, als hij veel den laatsten tijd werd genoemd, --- meer Romein zag opgroeien, meer man zag worden en prins, dan Antoninus in zijn veelvuldigheid ooit zoû wezen. Maar de Grootmoeder had ook Alexander lief, en vreezende, in vage angsten, dat Antoninus noch zonen krijgen zoû, noch in oudheid van jaren de macht zoû in handen houden, wist zij te bewerken, dat in den Senaat plechtiglijk Antoninus zijn neef Alexianus --- Aurelius Alexander --- tot zoon aannam --- ook al telde hijzelve zestien, Alexander nauw dertien jaren. Die adoptie gaf als een rust en zenuwverkalming, en eigenlijk waren het Semiamira en Antoninus het eerst, die na eindelooze gesprekken --- zoo als vrouwen te zamen klappeien over familie-aangelegenheid --- weêr oorzaak tot ontstemming waren: in de omgeving van Mammea --- zoo werd hun overgebracht --- werd tusschen de wijsgeeren en paedagogen, die Alexander opvoedden, gelachen om het Huwelijk van den keizer als Antonina, werd gespot met den Gemaal, en toen deze, Hierocles, hiervan hoorde, eischte hij, terstond, drie, vier verbanningen en terechtstellingen, om, als hij zeide, een voorbeeld te stellen. Semiamira hitste aan, uit ergernis om de bespot-ting, uit vrees voor Hierocles, Antoninus gaf toe, gebood Aristomachos, Antiochianus --- die hem zóo aanbaden, dat zij hem niets weigerden ---; aan het verlangen des Gemaals werd voldaan, niettegenstaande Mœza, vertoornd, verhinderen wilde. Maar zij was de zwakkere op dit oogenblik. Na hare zwakte het Huwelijk niet te hebben verhinderd --- Huwelijk, dat zij als Syrische, als Dochter der Zon goedkeurde, maar afkeurde als Romeinsche matrone --- Huwelijk, gedecreteerd door den Senaat en bijgewoond op haar eigenen aandrang --- bleef zij de zwakkere, op dit oogenblik; hadden de verbanningen, terechtstellingen plaats, trots de hevige verwijtingen van Mammea, en zegevierde Hierocles, tot vreeze voor iedereen. Maar de zwakkere wilde Mœza niet blijven en daarom was het, dat zijzelve Antoninus opzocht in het vertrouwelijk uur van de siësta, in het binnengeheim van zijn eigen kameren, waar hij las en overlas een brief van Hydaspes, om hem te zeggen, nemende zijn hand in de hare, en die streelende herhaaldelijk:
+
+--- Mijn heerlijke Antoninus... ik ben dezen morgen verrukt geweest tijdens den Dienst en den Dans, en het scheen mij toe, o mijn kind, dat ik op het rythme van je beweging het paradijs voor mij open zag wijken... En toch ben ik daarna in gedachten treurig heengegaan. Want ik dacht: hoe moet het Antoninus toch hinderen, dat hij niet alleen God is en Hoogepriester van Wie hijzelve op aarde voorstelt, en hoe lastig moet het Antoninus toch zijn, aardsche en keizerlijke macht in handen te houden, terwijl zijn glanzende geest met alleen Goddelijke Dingen vervuld is...
+
+Antoninus, nog vol van Hydaspes' brief, verstond niet geheel en al wat Mœza's oude, week suggereerende stem hem poogde te doen begrijpen en raden, en terwijl zij zat op zijn bedde, waar hij zich op den elleboog had gericht, nam zij in hare omhelzing zijn hoofd, en drukte het tegen zich aan en zag hem in de oogen, glimlachend:
+
+--- ...Terwijl zijn glanzende geest met alleen Goddelijke Dingen vervuld is... herhaalde Mœza met nadruk en zij voegde er nu langzaam aan toe:
+
+--- Ik dacht, o mijn Antoninus, of het niet meer de wil van de Godheid zoû zijn, zoo je geheel je terug trok in de Goddelijke Dingen... waar ook... het zij hier... het zij... te Emessa...
+
+De keizer was opgesprongen.
+
+--- Wat meent u?! vroeg hij hard, kort. Grootmoederlijkheid, wat meent u?
+
+--- Ik ben een oude vrouw, een vrouw van den dag, Antoninus, zei Mœza. Talenten zijn mij zeker gegeven, en met liefde regeer ik voor je, heb ik zitting in den Senaat genomen --- wat nóoit nog door een vrouw werd gedaan --- neem ik je alle staats- en regeeringszaken uit handen... Maar kind, als ik morgen sterf, WIE zal aan je rechterhand staan! Wie zal je, in Goddelijke Dingen verzonken, wijzen op de aardsche dingen... Daarom, o Antoninus, dacht ik...
+
+--- Wat dacht u, Grootmoederlijkheid...??
+
+--- Doe plechtiglijk afstand van een lastige macht, die je niet lief is; doe afstand ten behoeve van den zoon, dien je aannam, van den Caezar, van Alexander, en...
+
+--- En wat...??
+
+--- Wees alleen Helegabalus --- geen keizer van Rome --- het zij hier... het zij te Emessa...
+
+Geen keizer meer, maar alleen Helegabalus zijn te Emessa... Hydaspes terug zien, den geliefden Tempel terug zien, den geliefden God terugvoeren uit de verbanning van Rome naar de zalige plek, waar hij thuis behoort, en neêrgedaald is op de aarde... Te Emessa leven, dànsen, en eeredienen... Er is, even, een ontzettende vreugde en wijde ontspanning in de ziel van den knaap; het is hem, of zij in hem opzwelt van zaligheid; met kussen zoû hij kunnen bedekken die oude vrouw; niet anders dan gouden glans, vreugde en verrukking, extaze,... opent zich voor Antoninus' verklaarden blik. Maar ook niet langer dan éen enkel oogenblik, en zóo kort duurt die seconde van wellust, zoo kort duurt de bliksem van dat vizioen van geluk, dat de Grootmoeder het zelfs niet vermoedt, want zij ziet alleen àngstig Antoninus' violette oogen haar tegen staren, en zijne stem smeekt:
+
+--- Grootmoederlijkheid, waarom? Waarom mag ik geen keizer meer zijn? Waarom moet ik terug naar Emessa? Heb ik gedaan dingen, die u mishaagden? Houdt u meer van Alexianus dan van mij? Ben ik niet meer uw lieveling? Waarom moet Alexianus nu keizer worden, terwijl u te Emessa toch bewerkte, dat ik, de oudste, werd uitgeroepen? Heeft het volk mij niet meer lief dan Alexianus? Heeft het Leger mij niet meer lief? Verdringt, o vertrapt het volk elkander niet om te aanschouwen als ik verschijn? Dans ik minder goed dan te Emessa? Geef ik ze niet geheel mijzelven, mijn ziel, mijn lichaam, zoo geheel als ik maar geven kan? Zal ik ze niet nòg meer geven, geheel het Licht en de Klaarte van Helegabalus, opdat zij hier op aarde al in den hemel zwelgen? O, zoo ik Hydaspes maar naast mij had... Maar waarom, o Grootmoeder, moet ik afstand doen ten behoeve van Alexianus?
+
+--- Mijn kind, ik dacht...
+
+--- Omdat ik in Goddelijke Dingen verdiept ben? Maar kunt u mij de aardsche niet leeren, en kan ik u niet belooven een vlijtige leerling te zijn? En dan, is u niet krachtig van lichaam en geest, al is u bejaard, en zal u misschien niet meer jaren nog leven, o Grootmoederlijkheid, dan ikzelve?! Wie kan het u zeggen, hoe jong wellicht ik sterf, en hoe ge mij overleven zult! Zoo zoudt ge altijd voor mij de aardsche dingen kunnen regeeren, met de aardsche almacht, die u lief heeft! Maar waarom wil u mij ontkroonen!! O Grootmoeder, neen, o neen! Laat mij keizer, laat mij keizer blijven! Ziet u...: ik krijg Rome lief! Ik heb Rome... nu meer dan Emessa lief... en... en ik zal stèrven... te Emessa... van Rome ver...
+
+Hij stottert, hij durft niet zeggen, dat hij Hierocles aanbidt, zijn Gemaal; hij durft niet zeggen, hoe hij vermoedt, dat Hierocles alleen hem veinst lief te hebben... omdat hij keizer is en oppermachtig ---; hij durft niet zeggen, hoe hij vermoedt, dat Hierocles zelve naar bijna keizerlijke macht is eerzuchtig, minstens naar macht en waardigheid van Caezar; hij durft niet zeggen hoe hij bijna zéker weet, dat Hierocles hem nooit naar Emessa volgen zoû, en dat hij daar weg zoû smachten zonder Hierocles' liefkoozing... Hij durft dat alles niet zeggen, zoowel om ijdelheid --- omdat Hierocles de éerste is, die hem niet om hemzelven lief-heeft --- als uit angstige voorzichtigheid, om niet de waarheid geheel te verraden, de waarheid van Hierocles' geheimste ziel en eerzucht en streving, die hij, Antoninus, geraden heeft... Hierocles wil Caezar zijn, in de plaats van Alexianus, hem, dien zij nóoit Alexander noemen, noch hijzelve, noch Hierocles, noch Semiamira... O neen, nóoit... zal Antoninus zijn Gemaal in die eerzucht verraden, en liever zal hijzelve Alexianus vermoòrden, om Caezar te maken wie hij bemint met de grootste innigheid en, helaas, meest nutlooze verspilling, tot welke ooit zijn ziel in staat zal zijn! Uit ijdelheid en ook uit stil leed --- omdat Hierocles de allereerste is, die hem niet om zichzelven liefheeft! --- en dan uit angstige voorzichtigheid, zal Antoninus niet verder meer zeggen: en hij stottert alleen, smeekend, verward, en herhaalt:
+
+--- Ik heb Rome nu meer dan Emessa lief... en... ik zal sterven te Emessa... van Rome ver...
+
+--- Je hebt Rome eindelijk meer dan Emessa lief!! juicht de oude vrouw op.
+
+O zij is slim, en doorziet senatoren en hovelingen, maar zij doorziet niet Antoninus, omdat zij verblind van liefde is! Zij gelooft waarlijk, die fijne staatsvrouw, almachtig in werkelijkheid zij over den Senaat en het Volk van Rome, dat Antoninus Rome, haàr geliefd Rome, meer dan Emessa lief heeft! Zij gelooft het werkelijk, dat er iets in de veelvuldige ziel van dat vreemde kind is gaan trillen voor Rome en het heerschersschap over de wereld! Zij weet niet, hoe zeér hij Hierocles lief heeft en zij wéet niet de eerzucht van den auriga, omdat zij te veel hem minacht, mot in het Licht van de Zon! Zij aanbidt alleen haar Antoninus en het heeft haar pijn gedaan hem voor te stellen zich alleen aan de „Goddelijke Dingen“ over te geven.
+
+--- Je hebt Rome eindelijk meer dan Emessa lief!!
+
+Zij heeft Antoninus omhelsd. Neen, nóoit zal zij Antoninus kunnen onttroonen, ten behoeve van Alexander. Meer Romein, meer prins, meer man moge zijn Mammea's forsch opbloeiende zoon, de Grootmoeder heeft dit kleinkind lief --- zij weet niet waarom, en zij vermoedt bijna, uit vroomheid! --- veel meer lief dan Alexander! Zij heeft hem in hare armen genomen, haar boven allen aanbeden goddelijken Antoninus; zij kust hem, zij troost hem, zij streelt hem, terwijl de keizer uitklaagt, uitweent, uitsnikt, als een hysterische vrouw:
+
+--- Ja... ik heb Rome... meer lief dan Emessa... NU... maar niemand te Rome houdt meer van mij!!
+
+--- Stil, stil Antoninus, het volk aanbidt je, het leger aanbidt je!
+
+--- U heeft mij niet lief!
+
+--- Ik? Maar ik aanbid je, mijn kind... Maar iedereen, iedereen aanbidt je! Je moeder... zoo velen...
+
+--- Alexianus niet!
+
+--- Alexander zal wêér lief je hebben, als je hem, als oudste en als verstandigste, nadert het eerst...
+
+Niet voegt de keizer er bij: Hierocles heeft mij niet lief... maar hij dènkt het, en weent, en snikt er om... O, als hij uitroept: NIEMAND te Rome houdt van mij, bedoelt hij niet anders dan: Hierocles, hoewel hij Gemaal mij is, heeft mij niet lief, OM MIJ... veinst mij lief te hebben alleen, omdat hij Caezar wil worden, keizer misschien in mijn plaats... Maar nooit tegen wie ook, zal hij de waarheid, die hij gevoeld en geraden heeft, uiten; neen, nooit! O, zijne ijdelheid, die deze verzwegene waarheid zóo kwetste! En o, zijn eenzaam beminnend hart, dat in Hierocles niets vindt dan de koudste eerzucht, terwijl hij voor Hierocles alles opofferen zoû, en alles gewaagd heeft, in het aanzien van geheel de wereld! Stil, stil, hij lijdt als een vrouw, hij wringt als een vrouw zich tegen de Grootmoeder; hij snikt als een vrouw, en de Grootmoeder meent hem eindelijk te troosten, met die juiching nog in hare stem:
+
+--- O Antoninus, mijn heerlijke Antoninus, als je Rome meer dan Emessa lief hebt, dan zal je mijn keizer blijven, altijd, altijd, wat Mammea ook wenscht voor haar zoon!
+
+Neen, zij kan niet anders dan blijven handhaven haar Antoninus, dien zij aanbidt, en ànders zal zij haar kracht herwinnen; zij, Mœza, die eén oogenblik de zwakkere is geweest, de zwakkere van Hierocles. Knakken in zijn hoogmoed, laatdunkendheid en bijna keizerlijke eischen zal zij den Gemaal van den keizer, den Gemaal, dien zij duldde omdat hij een gril --- want meer vermoedt zij niet dat hij is --- een gril is van Antoninus: den Gemaal, dien Antoninus zeker na enkele maanden zal verstooten, verbannen... of doen verdwijnen; niets zal meer gebeuren dan volgens hàre wenschen, de wenschen van de heerschende, in werkelijkheid oppermachtige Clarissima, maar Antoninus zal, keizer, als een godemooi, godeheerlijk symbool blijven uitglanzen; Antoninus... en niet Alexander!
+
+Zij heeft in hare sterke ziel eene groote zwakte, waarvan zij nooit zal genezen, maar zij is verder zoo krachtig, dat haàr die zwakte niet noodlottig zal zijn...
+
+## 12\.
+
+...„O mijn teeder bemind kind, o zachte liefde van mijn om hoogen Toren starlichtende nachten, hoe ik je wensch, nu je gereikt bent tot de Oppermacht? Doende het groote Goede, strevende naar het Allichte, de heilige Zon aanbiddende, maar vooral het heilige Licht, waar de Zon het glanzend symbool van is, onzen Lichtdienst met je verbreidende in Rome en door heel het Rijk, je keizerlijken invloed aanwendend om den Dienst van het Licht te verbreiden onder alle volkeren, die aan Rome zijn, zóo, o mijn Antoninus, zoû ik je wenschen in de openbaringen van je leven, maar meer nog en anders wensch ik je in de heilige stilte van je ziel... Daár, o mijn Antoninus, strevende terug naar het Licht, waaruit onze ziel, een vonk, weggetikt werd in de ruimte der eeuwigheid, tot zij viel in steeds dieper vernedering en rossigde tot onreine vlam, en verstoffelijkte tot een ziel van goud, want Goud is het verstoffelijkte Licht, en in het Goud schuilt de ziel, vernederd, des Lichts: daarom is het Goud wereldsch symbool van het hoogste en het rijkste en het machtigste en het lichtste... O, strevend, mijn Antoninus, bewust tot het Licht terug, alle gedachte te zamen trekkende àf van de wereld en haar vestigend als een bundel van lichtende stralen, op het Licht, op het alheilige Licht... Vergeten wie je zelve bent, zelfs juist nu, dat je keizer bent, bewust terugstreven tot den Oorsprong van Licht, die God zelve was, de Onuitsprekelijke, inheilig en sekseloos, voor Het, in geheim ondoorgrondelijk, de Geboorte dacht en de Schepping en beide seksen in zich borg, zich vermannelijkte, zich vervrouwelijkte te gelijker tijd tot het Man-Maagdelijke Licht... O, Antoninus, ik zoû je wenschen, strevende terug tot den Oorsprong, die sekseloos was; ik zoû je Uitverkoren Ziel terug willen zien streven tot dien menschelijkeren vorm eerst: den vorm der Tweeslachtigheid, tot de Ziel van de Man-Maagd, het Enkel-Dubbele, tot Adam-Heva, die was en weêr zijn zal in jou, Antoninus, in evenwicht, in HEILIG EVENWICHT...
+
+Den brief van Hydaspes lezend en overlezend lag Antoninus in den octogonalen Toren op de breede sigma van gele zijde. Hij was alleen; buiten, voor de deur van de wenteltrap, hurkte Narr. Hij las en las over, en àl het geluk van Emessa, van vroeger, daar waar hij eigen geweest was met den grond, dien hij trad, en de atmosfeer, die hem omringde, kwam als met een geurwolk van herinnering over hem en bezwijmelde hem, bezwijmelde hem... O, hoe het heimwee hem smachtte als een dorstend verlangen... Maar sterker dan het smachtende heimwee was het alsterke Noodlot over hem en de liefde voor Hierocles in hem... Neen, hij zoû nu niet meer Rome voor Emessa verlaten kunnen. Naar Emessa zoû Hierocles hem niet volgen, de Gemaal, maar die hèm niet lief had, die slechts lief had de oppermacht over de wereld! Hierocles, de eerste, de eenige, die Antoninus nièt om zijn wondermooie godknapelijf beminde, en dien hij, Antoninus, zelve beminde met een hartstocht noch niet vermoed, en waarvan hijzelve huiverde --- laf beminde, terwijl hij wist, dat Hierocles niet anders dan hartstocht huichelde... Narr, Protagenes, Gordus, Murissimus, Aristomachos, Antiochianus, zoo vele anderen, ze hadden hem hartstochtelijk lief, om hèm, om hemzelven, omdat hij was, die hij was; lief had hem Ganadasa --- hartstochtelijk niet, maar met zóo dwepende aanbidding, dat het kind er om spotte, er niet in voelende den haàt, waartoe die bespotte aanbidding mogelijk zou kunnen omslaan... En wie hem niet aanbad of beminde, bewonderde hem met een glimlach verrukt, zoo als de maathoudende Gordianus, maar hem lief hebben en bewonderen deden allen, alle zijn Magiërs, alle zijn priesters, al zijne soldaten, geheel zijn volk: millioenen waren de aanbiddingen en de hartstochten en liefdes, die wolkten als wierook en nardos naar hem toe, naar hèm toe, den god Helegabalus, ge-incarneerd; en hij, Helegabalus, hij had Hierocles lief; den eenige, den eerste, die hem niet aanbad, bewonderde en lief had! De eenige, de eerste! Zijn Gemaal, zijn in het aanzicht der verwonderde wereld verkozen Gemaal, wiens ruwe greep van drift, van razernij hij voèlde nog, Hydaspes' brief in de hand, om zijn smallen pols, die als blauw gewrongen scheen in de forsche schroef van Hierocles' vuist! Pijn deed de pols hem en hij streelde de blauwe plek, die hij niemand had durven toonen, en verborg onder een breederen gouden armband, dan hij anders droeg...
+
+„Doende het groote Goede, strevende naar het Allichte...“
+
+O, hoe zoet, op den Starretoren, terwijl de kristallene sterren langzaam henen wentelden over de verklaarde zee en verdwenen achter den rug van den Libanon, waren Hydaspes' lessen geweest en heilige inwijdingen in de Onzienlijke Dingen: de orale mysteriën, die de Magiërs onder elkaâr bewaarden, ver van des volks bezoedeling, in het deurlooze binnengeheim van hun Toren...
+
+Had hij het groote Goede gedaan en streefde hij naar het Allichte?
+
+Nu voelde hij zich weifelen, Antoninus, en begreep hij eerst, zoó ver van Hydaspes, zoo ver van Emessa, den Toren, dat het heel moeilijk was het groote Goede te doen en naar het Allichte te streven. Wellicht, aan Hydaspes' zijde, ware het gemakkelijker geweest... Maar hier te Rome... Wàt was het groote Goede, en waar school het Allichte...? Wat in Emessa, op den hoogen Toren, in de triltintelende starrenachten zoo eenvoudig en goddelijk klaar en bijna al tastbaar nabij en gevonden scheen, werd in Rome niet meer dan een klank, een verre echo als van verklinkende Syrische en Egyptische harpen, waartusschen de snerp van een stervenden pauw zwak en geknepen schreeuwde... O neen --- plotseling kwam het duidelijk tot hem --- het groote Goede had hij niet gedaan, en hij streefde niet naar het Allichte, hoe vroom hij ook was, hoe lief hij zijn God ook had en al diende hij iederen middag den Zwarten Steen, en al danste hij, zelfs meer dan te Emessa voor den Monolieth-fallus van Helegabalus... Al was de God in hem ge-incarneerd... verre, verre, daàr in de verre lichtparadijzen bleef er van den God IETS, dat niet in hém, Antoninus, kwam nederdalen... Er was nog iets vers, iets onbereikbaars: noòit, zonder Hydaspes, zoû hij kunnen streven naar het Allichte, en kunnen volvoeren het groote Goede... Maar in zijn ziel, in zijn lichaam... Adam-Heva worden... dat was toch hier op aarde het voornaamste... en... werd hij die niet...? O, het evenwicht, het moeilijke evenwicht: niet meer Man dan Maagd, niet meer Maagd dan Man... Man van vorm, voèlde hij zich al vrouw, en had hij gehuwd zijn Gemaal...: Heva, Heva was hij: hij gedacht het zich met een trots en een ijdelen, behaagzieken glimlach, die rond de wanden der Toren ging, waar in nissen de kristallen kruikjes schitterden, vol vreemde groene en roode vochten...
+
+Heva, Heva was hij, maar beiden moest hij zijn: Adam-Heva... Nooit had hij met liefde een vrouw beroerd... nog niet...; Cornelia Paula had hij weggezonden, maagd... om de vlak op haar linkerborst; geen danseres of ornatrix, met wie hij toch dartelde in zijn dolvroolijkheid, in gemeenschappelijk bad, in gemeenschappelijke ontharing en zalving, had hem man gemaakt... en plots voelde hij, dat hij niet Adam was... dat hij nooit streefde om Adam te wezen... „Terugstreven tot dien menschelijkeren vorm: den vorm der Tweeslachtigheid, de ziel van de Man-Maagd, het Enkel-Dubbele, tot Adam-Heva, die was en weêr zijn zal in jou... o mijn Antoninus...“
+
+Hij las en herlas, hij beloofde zich, hij beloòfde zich Adam te zijn, Adam te zijn èn Heva, in het bijna voor geene menschelijkheid bereikbare heilige Evenwicht! Maar zijn pols deed hem stekende pijn --- hij meende, het gewricht was gezwollen en nu hij streelde dien pols, werd hij treurig om zijn lichamelijk lijden, en werden zijn oogen hem vocht, en gingen zijn blikken langs de torenwanden weemoedig... Oud worden zoû hij niet... Zéker voelde hij, dat hij niet oud zoû worden...: geen Incarnatie bereikte hooge jaren... en de Magiërs, in allergeheimst orakel, hadden hem voorspeld vroegen en gewelddadigen dood... Dat had hem wel eerst doorhuiverd van vreeze, maar in vroomheid zoû hij zich bukken voor den wil van den God... Jeugdig zoû hij sterven, en omkomen gewelddadig...: o, ook Hydaspes, die het hem niet had willen zeggen, had dat gezien in de bloedroode lucht om zijn star... Maar moèst hij dan jeugdig omkomen en gewelddadig, dan wilde hij --- hij smeekte er om in gebed --- omkomen IN PRACHT, in dezen Toren schitterend van chryzoliet en albast en schildpadden paneelen ---  --- dan wilde hijzèlve de hand aan zich slaan, aan zijn goddelijk lijf van volschoone Incarnatie, dan wilde hij keuze hebben in de wijze, waarop hij zoû sterven, en daarom verzamelde hij hier tal van groene en roode vergiften, die Narr hem wist te verschaffen, en stevige zijden strengen tot opknooping aan gouden ringen, en met gemmen bezette dolken om zich misschien door het hart te drijven, als de vergiften niet plotseling neêrbliksemden, of hij zoû zich door venster van email te pletter gooien op het mozaïek van edel- en harde-steen, dat voor de ivoren poort zich plaveide.
+
+Zoo zoû het zijn: hij zag het: het oproer, een verraad van het leger, dat Mammea met de gestolen schatten van Grootmoeder had weten om te koopen; de Praetorianen, die hem nu aanbaden, Aristomachos, Antiochianus --- o, zoû dàt mogelijk zijn?! --- de deur van den Toren beukende, de soldaten binnen dringende... juist op het oogenblik, dat hij, Helegabalus, lachende, zwolg het bliksemend vergif uit holle brontea of karbonkel, of zich stiet in zijn bijna maagdeborst den dolk met juweelen bezet... Zoo zoû het zijn, en prachtweelderig als zijn leven geweest was, zoû zijn dood zijn, overweldigend verbazend, kostbaar, en bevallig van gebaar en van houding...
+
+Maar de pols deed hem pijn en hij kreunde, en niet meer kunnende harden, riep hij:
+
+--- Narr!
+
+De Moor kwam binnen.
+
+--- Meestertje!
+
+--- Narr... zie eens: ik heb mij verzwikt... Narr, jij die weet middelen, die genezen en dooden, zoek mij een balsem, Narr, voor verzwikking, en masseer mij den pols...
+
+De Moor bezag den pols aandachtig; toen, knielend, keek hij diep in de oogen van Antoninus.
+
+--- Meestertje, zeide hij, sloeg de zwarte armen rond Antoninus' knie; lief Meestertje, dat ik aanbid: zeg mij, moet ik Hierocles vergiftigen?
+
+--- Neen, neen Narr! schrikte Antoninus, en stiet hem ruw van zich. Neen, neen Narr, ik heb Hierocles lief en... zeg nooit meer zulke dingen, en dènk ze niet... denk ze zelfs niet, Narr...
+
+--- Ik weet een balsem, dien ik ga halen, zei de Moor somber, stond op, ging heen.
+
+Antoninus, angstig, wilde terug hem roepen. Maar de pols deed te veel pijn, stak nu bij de minste beweging, en de knaap vièl terug in zijn kussens. Roerloos lag hij te wachten, dacht aan Hydaspes, herhaalde, murmelend:
+
+--- ...„Adam-Heva, die was en weêr zijn zal in jou, o mijn Antoninus!“
+
+Ja... hij zoû Adam willen zijn, als hij Heva was: hij zoû een tweede Gemalin zich kiezen. Naast den Gemaal zich kiezen een Gemalin... o, het moeilijke Evenwicht! Met een behaagzucht dacht hij er aan, dat Hierocles hem misschien meer lief zoû hebben, om hem, om hemzelven, om zijn goddelijk lijf, als hij naast hèm had een Gemalin... En plotseling wist hij wie hij kiezen zoû... als of de keuze reeds lang, reeds maanden, een jaar geleden, stille onbewust, in zijn ziel was gedaan. Wist hij wie hij kiezen zoû, tot gemalin en tot keizerin... Een Hoogepriester zoû niemand anders dan een Hoogepriesteres kunnen huwen...
+
+Aquilia Severa, zij, de Virgo Maxima der Vestalen... De ongelooflijkheid van zijn gedachte schitterde plots blij verbazende voor hem uit... De kracht van zijn verbeelding en uitdenking vermaakte hem met een bijna artistiek genot, en deed hem de pijn aan den pols vergeten... De onaantastbare kuischheid der Virgo Maxima te huwen na decreet van Senaat en Volk... De onveranderlijke dingen der menschen en mindere goden te veranderen, met een enkel woord... De heilige tradities van Rome --- in een stil geheime wraakzucht op dat noóit geliefde keizerlijke banningsoord --- te ontheiligen, omdat zij minder waard waren dan de tradities van Syrië, dan de Zonne-mysteries van Emessa... En ze te ontheiligen niet met een harde hand van gezag en een wreeden frons, maar ze te ontheiligen met een aanbiddelijken glimlach... Aquilia Severa, de maagd, wier koude blik, wier blik bijna van minachting, hij op zich gevoeld had, altijd, tijdens de spelen en feesten, tijdens de Diensten en Dansen, tijdens zijn Huwelijk en den Bruidsnacht, toen hij in Hierocles' armen haar had aangestaard al met de hemzelven nog onbewuste gedachte haar zoo niet te onteeren --- tòch te ontheiligen... Het Vuur van Vesta te ontheiligen... Het te dooven misschien, het te dòoven: het zoó te dooven, dat de Senaat het goed vond, het zoo te dooven, dat zijn Grootmoeder het goed vond...
+
+Hij schaterlachte om zijn eigen gedachte, toen Narr binnenkwam, blijde verrast omdat Meestertje vroolijk was, en terwijl de Moor met den balsem den pols masseerde, wist Antoninus eindelijk hoe hij Hydaspes' wensch zoû kunnen vervullen... hoè hij tot het wezen der Man-Maagd, Adam-Heva, terug zoû streven:
+
+Door naast zijn Gemaal, Hierocles, tot Gemalin te kiezen de kuischte en de waardigste maagd van alle Romes maagden: de Virgo Maxima der kuische Vestalen: Aquilia Severa, zij, die hem aanzag met minachtenden blik...
+
+## 13\.
+
+Het scheen of Rome wachtte...
+
+Of het na het Huwelijk wachtte op de nieuwste revelatie van den keizer en god Helegabalus: zoowel op de area-palatiï van het Flavische Paleis, als aan de andere zijde, voor het Paleis van Septimius Severus, stond de Menigte, stond te kijken, te wachten iederen morgen, iederen avond, hopende op prikkelende nieuwheid en zwiepende buitensporigheid, op weêr iets anders, op weêr een optocht, op weêr een openbaring, stond de Menigte in aanbidding nog wel, maar toch reeds lichtelijk moede zoó lang --- bijna drie geheele jaren! --- met liefde den zelfden god, Helegabalus, te hebben aanbeden --- moê in hare liefde, devotie, moê zelfs in hare nieuwsgierigheid, omdat eigenlijk àlles gebeuren kon, omdat er niets onwaarschijnlijks meer zijn zoû... Toch, toch stond zij, als uit een gewoonte; vooral stond zij te wachten de laatste dagen, omdat in de fora, de thermen vreemde geruchten waren ommegegaan... zoo vreemde geruchten, dat ze dezen keer niet alleen deden verbazen, maar bijna rillen van angst, meér dan toen het beeld van de Moeder der Goden uit haar tempel naar het Helegabalium was verplaatst... Huivere blikken gingen op naar den ronden tempel van Vesta, en naar het Huis der Vestalen, door de Via NOVA van den Palatinus gescheiden, aan wiens voet het zijn strenge lijnen van twee-verdieping-hooge portieken trok om het kuische geheim van het Atrium der Maagden heen.
+
+Toch zag de Menigte die dagen nog niets, want streng, kalm en kuisch bleven de lijnen van die portieken, bleven de lijnen van den zwaren tufblokkenmuur, die den tempel op zijn vierkante plein omringde --- maar binnen het Huis was onder de Maagden eene beroering, na een geheim gesprek, dat de Virgo Maxima, Aquilia Severa, had gehad met den Pontifex Maximus. Ook was een eunuch van het Paleis gekomen, die de komst van de Clarissima, Julia Mœza, voor dien morgen aan de Opperpriesteres had gekondigd. Niet vreemd zoû de komst van de oude prinses hebben geschenen, daar toch in staatszaken van belang zoo vaak de Virgo Maxima werd geraadpleegd en haar invloed van groote beteekenis was, maar Severa, bleek, somber, en als verstijfd onder de marmeren plooien van haar stola, had zich na het gesprek met den Pontifex in haar eigen vertrekken teruggetrokken, en de vijf andere Maagden waren in vermoedens vol huivering achter gebleven.
+
+Zij hadden beseft, de Maagden, van het eerste oogenblik, dat Antoninus in Rome was binnengetriomfeerd, dat hare Dienst van strengen eenvoud en blank kuische zeden en heel hooge, onaantastbare waardigheid nièt was in samenstemming met de uit het Oosten aanbrallende zingloeiïngen van de Zon --- in wier zingloeiïng zij niet het verborgen mysterie hadden geraden, de orale heilige wijsheden van Syrië en van Egypte, die de Magiërs ijverzuchtig onder een der menigte verblindende uiterlijkheid omsluierden, zoó dat het volk zelfs die wijsheden niet vermoedde, en er nimmer naar zoeken zoû. Dat al wat in den Zonnedienst niet werd uitgesproken dan in het diepste geheim van de deurlooze torenvertrekken daarginds --- de Vestalen vermoedden en raadden het niet, en hare sereene, blanke waardigheden waren alleen ontzet geweest over de nieuwe, rosse Diensten, die aanzwoelden, aanzwoelden en wel verschroeien konden de maagdelijke onrepbaarheid der godin, wie menschenhanden geen vorm ooit hadden uitgebeeld, en die alleen de zelf ontbrandende Vlam symbolizeerde, vlam zóo kuisch als het rosse vuur van de Zon onkuisch was.
+
+En nu, wàt dreigde? Waren er gewichtige zaken van Staat, dat de Pontifex Maximus, de eenige man, die toegang had binnen het Huis en den Tempel, een lang gesprek met Aquilia Severa gevoerd had, dat Julia Mœza haar komst had gekondigd... Of dreigden er waarlijk verschrikkingen, van welke de echo reeds nu en dan door slavinnen het Huis was binnengefluisterd... In zulke ongerustheden waren de vijf Maagden in het Atrium bij een, een heel vroegen morgen, het eerste daglicht door vela grijzig neêrzevende op het vasculum en de marmeren beelden van enkele gestorvene oppermaagden, toen slavinnen door de portieken verward binnensnelden met onsamenhangende uitroep en kreten, om wier weinige vormelijkheid de Vestalen dadelijk de brauwen fronsden, --- weêr wegwarrelden, als witte vogels, her en der, tot er eindelijk eéne kondigde, half knielend, de handen gevouwen tot de Maagd, die haar staande hield:
+
+--- Cornelia Praetextata...: hoor!! Een groote menige, op de Sacra Via staat stil en juicht den keizer tegen: Antoninus, die met een wagen, door vier herten getrokken, gekomen is, en afstapt voor de poort van het Huis!
+
+--- Het is de keizer, Antoninus! riepen, verschrikt, de andere dienaressen, weêr binnenwarrelend in het Atrium; het is de keizer, die toegang vraagt!
+
+--- Het is de keizer: Antoninus! Het is Helegabalus, omringd van zijn gunstelingen, die binnen wil dringen, om de Virgo Maxima te zien!
+
+In het Atrium, in het grijze licht, gezeefd door de vela, waaide als een schrik de fijne plooien der stolae der Maagden uit-een en was er een angstige wachting, maar nog geloofde er geene, dat de heiligschennis, die de slavinnen haar kondigden, zoû kunnen gebeuren, want Romes oudste tradities, eeuwig en door allen in eere gehouden, beschermden haar voor zoo brutale beleediging. De Maagden herwonnen hare marmerige waardigheden en bleek wachtten zij af.
+
+Buiten, op den weg, was een gegons, was een gejuich, was een geruisch van duizende stemmen, en de Maagden hoorden des keizers naam: Antoninus! Antoninus! Juichte de Menigte? Of smaalde zij en keurde zij af? De Maagden wilden wel afkeuring hooren, meenden te vernemen de smaling, maar waarschijnlijk hoorden zij alleen wat zijzelve, bleek en sidderend, maar waardig, hoopten te vernemen. Tot er stappen, van mannen, door de portieken naderden...! Tot er mannenstappen naderden! Viel de bliksem dan niet uit den hemel! Was het dan waarlijk waar! Kon het Huis van Vesta ontwijd dan worden? Gebeurde dan waarlijk het alleronwaarschijnlijkste! De stappen, de stappen naderden, en, plots, terwijl de slavinnen, verschrikt, her en der warrelden en wegvluchtten, zagen de Maagden, de vijf, den keizer, Antoninus, verschijnen, te midden van zijn gevolg, van zijn gunstelingen, Gordus, Protagenes, Murissimus, zijn eunuchen en cubiculariï: geheél de zwerm, wiens omslachtige hofstoet hem steeds omgaf.
+
+Het grijze daglicht bleef onveranderd; recht bleven de zuilen staan der portieken en het ruischende water in de fontein tikkelde hoorbaar op de breede bladeren van waterplanten neêr, zoo als het altijd tikkelde. Er was een groote arum, op lang geschoten steel, wier blanke kelk bijna ironiesch knikkelde onder de onophoudelijke druppeling van het water... Maar plotseling door het watergetik heen sprak de hooge, even gemaakt zangerige falset-stem van Antoninus:
+
+--- Waardige Maagden, Zijne Eeuwigheid kondigt zichzelve aan, en verzoekt een onderhoud met de Serenissima, de Virgo Maxima, Aquilia Severa...
+
+De Maagden antwoordden niet, gedrongen op elkaâr, bang voor de heiligschennis. Het gevolg van Antoninus had geheel het Atrium gevuld. Hijzelve, te midden van zijn gunstelingen, stond voor de Maagden op antwoord wachtende, en zij zagen, dat hij beschonken was, en dat zijn gunstelingen waren beschonken. Hij droeg nog het feestgewaad van dien nacht --- want te bedde was hij niet gekomen --- en het kleedde hem in de met gouden druivenranken bestikte hyacinthen chitoon van den overwinnaar Bacchus, Dionyzos, Liber. Amethysten druiventrossen hingen langs zijn slapen, bevestigd aan gouden haarband. Hij rook naar den rozewijn, die zijn gewaad bezoedelde. Het goudpoeier was van zijn haren gestuiveld en glinsterde over zijn schouders. Het blanketsel was van zijn wangen geveegd door de zoenen van zijn gunstelingen en hij zag afgefeest, onfrisch en met glimmende oogen, die altijd behielden hun zijlinkschen lonkenden meideblik. Glimlachend en een weinig verstompt, wachtte hij steeds op antwoord. Maar de Maagden, bang, antwoordden niet, terwijl de gunstelingen nieuwsgierig in dit nooit door mannen betreden Atrium rondzagen, en plots omhoog wezen naar den ommegang tusschen de twee arkade-verdiepingen van den portiek rondom het Atrium.
+
+Daarboven was Aquilia Severa verschenen, getreden uit haar eigen kameren. Aan de balustrade van de ommegang zag zij neêr, naar beneden, in het Atrium. Haar gelaat was zoo bleek en zoo strak, dat er geen aandoening was te bespeuren. Zij geleek daar boven een standbeeld van Virgo Maxima, zoo als er beneden in het Atrium rondomme stonden. Hare donkere oogen staarden met de onberoerbaarheid van een hooger wezen. Even, onder de zona --- het gordelkoord, dat onder den boezem de plooien der stola vast hield --- deinde haar snellere adem. Het pallium plooide als week marmer breed om haar heen. Haar witte huif --- het suffibulum --- met een fibula aan den hals gesloten, omgaf haar bleek strak gelaat en tusschen de regelmatige vittae --- de haarbanden --- sprong de golving van het donkere haar. Haar lippen trokken heel dun, zoo hartstochtloos, als zouden zij nooit zich openen.
+
+De gunstelingen hadden gewezen. Toen Antoninus opzag, trapte hij op zijn eigen mantel, wankelde en viel, even lachende, met hoog lachje, tegen Aristomachos aan. Hij trilde zoo, dat de tribuun den arm om het middel des keizers sloeg, om hem te steunen. Daarboven was de Virgo Maxima, met heel langzamen tred, als slaapwandelde zij, gegaan naar de trap, die in het Atrium leidde. Antoninus zag haar, als in een droom zoowel zij, als hijzelve, afdalen trede na trede. De plooien van haar gewaad schuimelden over haar wit gesandaalden voet. Een rilling ging over Antoninus' rug, toen hij zoo dalen haar zag, trede na trede. Hij had bijna gehoopt haar te kunnen weêrhouden, haar te bevelen daar boven te blijven. Een ontnuchtering daagde over hem. Buiten rees hooger de zon, en het grijze eerste morgenlicht gloeide op door de vela. De blankheden van het marmeren Atrium, met zijne portieken, zuilen, arkaden en standbeelden, de blankheden der Vestalen, slavinnen en watergetikkelde bloemen gloeiden warmer op, als met een glans over sneeuw. Antoninus, ontnuchterd, berouwde. Het was te laat. Hij stond daar, nog trillend van de ontzenuwing om den gezwolgen rozewijn, wankelend op zijn knieën, als een slordige wijngod en zijn mantel was bezoedeld van de roode vlakken en de gespilde wellusten van de orgie. Er was een aarzeling, een verlegenheid, een weifeling in hem, terwijl Aristomachos hem tegen zijn zwaar soldatenlijf steunde, hem aanbiddende als altijd, hem altijd zullende aanbidden, in een blinde aanbidding, tot in den dood. Antoninus herwon zich. Aquilia Severa was de trap afgedaald en als een blanke bescherming naderde zij de groep der vijf Maagden, die angstiglijk stonden dicht tegen elkaâr. Maar zij sprak niet, toen zij voor Antoninus stond. Er kwam geen enkele roep van „heiligschennis“ over haar lippen. Zij staarde alleen, koud, minachtend en bovennatuurlijk. Antoninus had haar willen hooren schreeuwen, hem wegjagen, hem de deur zien wijzen met den gestrekten vinger. Zij staarde hem alleen in de oogen. Hij haatte haar, als hij haar gehaat had van het eerste oogenblik, dat hij in die oogen gestaard had, op den dag van zijn Triomf, toen zij te midden der haren uit het Huis was getreden en zich gevoegd had bij den Triomfstoet... Van dàt oogenblik --- nù voelde hij het duidelijk --- had hij haar gehaat, omdat zij een koude vrouw was, die de Zon niet begreep --- zoo als zijn moeder de Zon begreep, en zich aan dien god offerde, lijf en ziel... Hij haatte haar, Severa, en hij had haar willen vernederen, ontheiligen, onteeren. O, hijzou haar vernederen, ontheiligen, onteeren --- maar hij zoû het zoo doen, dat het een goddelijke eere scheen. Alleen, van zijn gril gekomen te zijn na een dronken orgie, in impulsie en aandrang van dronken gunstelingen, had hij berouw. Hij voelde, plots ontnuchterd, dat hij te ver gegaan was, dat hij, Hoogepriester, heiligschennis bedreef. Maar hij voelde ook terugkeeren zijne zekerheid en het bewustzijn van zijn almacht. Nu van dit oogenblik te maken wat er te maken van was en zich herwinnen, den toestand vermeesteren. En terwijl hij poogde aan zijn geknepene dronkene oogen vastere uitdrukking te geven, sprak hij hoog:
+
+--- Aquilia Severa... wenscht ge Antoninus geen welkom in het Huis der Vestalen?
+
+--- Het Huis der Vestalen werd nooit door een andere man betreden dan door den Pontifex Maximus, sprak, als een orakel koud, de Maagd.
+
+--- Antoninus is Hoogepriester, als de Pontifex Maximus is, en hij is tevens Helegabalus, de Incarnatie der Zon. Antoninus heeft recht den drempel der Vestalen te overschrijden. Antoninus is ook geen man: hij is de Man-Maagd, de menschelijkste vorm van den Demiurgos.
+
+--- Zoo Antoninus dan recht zich toekent, hebben zij allen zeer zeker geen recht.
+
+De Maagd wees in het rond op het gevolg.
+
+Antoninus haalde de schouders op.
+
+--- Zij tellen niet! sprak hij lacherig en behaagziek. Telt de Zon al het stof, dat hij in zijn stralen meêsleept? Ik tel ze niet, Serenissima. Zij bestaan niet voor mij, noch voor u. Als de Zon zijn stralen schieten naar zijn doel, dwarrelen duizend atomen meê.
+
+--- Wat is het doel, Augustus, van uw komst hier. Wel wachtte ik het bezoek der Clarissima, mij gekondigd voor dezen morgen: op de eer van het uwe was ik niet voorbereid.
+
+--- Mijn genade is mild, als die van Bacchus, en alom-weldadig, als die van de Zon, antwoordde Antoninus. Ik kondig mijn genaden en weldaden niet aan. Ik sprenkel ze, ik spil ze, zonder voorbehoud, met volle opene handen. Wat mijn doel is, Serenissima? Mijn doel is eer te bewijzen aan de godin Vesta, die groot is en machtig, al is zij de dienstmaagd van Helegabalus, Hij, tot wiens oppermacht geen god kan genaken. Mijn doel is eer te bewijzen aan de Maagden, die Vesta dienen, en die dienen haar Eeuwige Vlam. Mijn doel is eer te bewijzen aan u, o Aquilia Severa... Want mijn doel --- het doel van Helegabalus, de Man-Maagd, die terugstreeft tot den vorm van Adam-Heva --- is u aan mijn rechte zij tot Gemalin te nemen, zoo als ik nam aan mijn slinke Hierocles tot Gemaal.
+
+De keizer strekte de hand tot den handkus uit, maar Aquilia Severa verroerde zich niet. Bleek en strak bleef haar gelaat, dun gesloten bleven haar lippen. Alleen het gordelkoord, de zona, deinde op snelleren adem. Zij sprak, maar hare woorden bezwijmden bijna, onhoorbaar:
+
+--- Gelofte deed ik tot kuischheid.
+
+--- Geen gelofte telt voor de wil van de op Aarde vleesch geworden Almacht des Hemels.
+
+--- Wij waren de kuischheid van Rome.
+
+--- De Zon acht geen kuischheid: mannelijk bevrucht hij; vrouwelijk ontvangt zij en baart.
+
+--- Wij waren Romes waardigheid.
+
+--- Gij zult die blijven in hoogere eer.
+
+--- Wij bewaarden onder onze hoede het Allerheiligste: het Vuur, en het Palladium.
+
+--- Het Palladium en het Vuur zullen u, onze Gemalin, vergezellen naar het Palatium.
+
+Een beving doorvoer de week marmeren plooien van Severa's stola.
+
+--- Een woord alleen... Augustus, murmelde zij.
+
+Antoninus gaf een teeken; allen verwijderden zich. Hij bleef alleen met de Maagd in het Atrium. Severa vouwde de handen.
+
+--- Augustus, smeekte zij. Zie af...
+
+--- Nooit...
+
+--- Waarom niet??
+
+--- Omdat ik alleen u, Aquilia Severa, alleen de Virgo Maxima der Vestalen kan huwen, zoo ik in werkelijkheid Adam wil zijn, naast Heva, die ik ben voor Hierocles.
+
+--- Augustus, zeide de Maagd. Ik minacht niet de mysteries der Zon, al zijn zij niet die van Vesta. Maar ge komt tot mij, in het vroegste morgenuur en ge treedt alle heilige wet en traditie. Ge treedt het allerheiligste en allerwaardigste van Rome. Augustus, ge riekt naar wijn. In beschonkenheid zijt ge gekomen, na een nacht van orgie, zonder te beseffen en na te denken, gekomen met dronken hovelingen. Ze zijn kalm: onze waardigheid houdt hen in toom. Misschien denken zij nu en beseffen zij nu de ongehoordheid van uw daad. Augustus, denk ook, en besef. Ge kunt niet ernstig meenen, wat ge voorstelt: ik ben de Onaanroerbaarheid, Augustus.
+
+--- Niet voor de Zon. Niet voor mij. Severa... ik heb je lief.
+
+--- Neen, Augustus.
+
+--- Ik heb je lief, Severa.
+
+--- Augustus... Uwe Eeuwigheid haàt mij.
+
+--- Neen, neen. Ik haat je niet. Lief heb ik je: lief zal ik je hebben, naast Hierocles, om te worden zoo als Hydaspes mij wenscht.
+
+De Maagd had een gebaar van afschuw.
+
+--- Augustus, bedenk, besef. Is het u ernst, wat ge voorstelt?!
+
+--- Ja.
+
+--- Vreest ge dan niets?!
+
+--- Wat zoû ik vreezen. Alles vermag de Zon en het is niets dan het Algoede en het Allichte, waarheen ik terug streef.
+
+--- Gij zijt Magiër, maar gij zijt ook keizer van Rome en bewaker van zijn tradities. Augustus, ik ben Romes Onschendbaarheid!
+
+--- Ik ben de alom uitstralende Dubbelheid van Helegabalus!
+
+--- Wat wìlt ge?!
+
+--- U. Tot vrouw. Tot keizerin, tot Gemalin, naast den keizerlijken Gemaal, die mij Hierocles is. Met u en met hem, samen, terugstreven tot de Bron van ons Wezen: het Licht.
+
+--- Het is een afgrijselijkheid. Ik ben Hoogepriesteres der Vestalen.
+
+--- Ik Hoogepriester van Helegabalus. Ik ben Hemzelve!
+
+--- U is een kind, niet voor rede vatbaar!
+
+--- Jij, Severa, een vrouw, bekrompen en dom, onwetend van de minste der Onzienlijke Dingen, die de minste onzer priesters weet.
+
+--- Augustus! Augustus!! Zie af!!!
+
+--- Nooit! Van niets! Ik zie van niets af! Vesta zal de dienstmaagd zijn van Helegabalus. Er is geen god hooger dan het Licht, dat ik voorstel op aarde! Zelfs Jupiter Capitolinus buigt zijn bliksem voor hem neêr! Er zijn alleen hij en ik! Ik vermag wat ik wil, Severa. Keizerin zal je zijn en mijn vrouw, middel tot mijn vervolmaking. Op het Palatium zal je wonen en met je zullen gaan het Vuur en het Palladium.
+
+--- Het Vuur?! Het Palladium?! Niet alleen ik, maar het Vuur en het Palladium?!
+
+--- Ja.
+
+--- De Vlam van Vesta naar het Palatium? Het Palladium naar het Palatium?
+
+--- Ja.
+
+--- Het Eeuwige Vuur is onverplaatsbaar! Het Palladium is onzichtbaar! Eéns slechts --- ons Huis stond in brand --- onder keizer Commodus, is het Palladium zichtbaar geweest: de Maagden redden het uit den brand en brachten het Beeld in veiligheid!
+
+--- Het zal veilig zijn op den Palatinus, in het Lararium van mijn Paleis.
+
+--- Augustus! Antoninus!! Ik smeék je!
+
+Zij vouwde de handen, hare knieën knikten. Hij lachte, schel, als een zegevierende vrouw. Zij zag niet minachtend, noch laatdunkend meer; angstige wanhoopsmeeking was in haar blik...
+
+Maar buiten fanfaarden trompetten, juichten stemmen en joelden dooreen, want voor de poort van het Huis hoopte zich òp het nieuwsgierige volk... En plotseling, in het Atrium, waar Antoninus' schelle zegelach nog weêrklonk, trad haastig en bleek van ontzetting de Clarissima binnen, Mœza. Zij had haar bezoek voor dien morgen gekondigd, om Aquilia Severa voor te bereiden...
+
+Helaas, zij had Antoninus zijn wensch niet kunnen weigeren... Te huwen de Virgo Maxima, trots hare gelofte van eeuwige kuischheid... Zoo lang Antoninus haar, Mœza, regeeren liet, en haar de macht duldde in handen, stemde zij toe in àlles wat hij verlangde, en zij niet zeer telde, omdat zij hem liefhad, haar kleinkind, in zoó groote verblinding, als zij nooit had lief gehad... De Senaat was reeds door haar voorbereid: een Hoogepriester, als Antoninus, kòn huwen een Hoogepriesteres: hunne kinderen zouden goddelijk zijn... De Senaat had reeds toegegeven... Zelve wilde zij Severa voorbereiden... Helaas, zij kwam te laat! Daar zag zij Antoninus staan, niet meer dronken, maar afgefeest van dien nacht, bleek, in zijn slordigen, bevlakten chitoon-en-druivemantel. O zij ontzette, de Clarissima! Zij begreep de heiligschennis! En niettegenstaande àl hare liefde voor Antoninus, was haar eerste woord er een van verontwaardiging en hevig verwijt.
+
+--- Antoninus! Antoninus! Schaàm je? Geen man betreedt het Huis van Vesta, anders dan de Pontifex Maximus!
+
+--- En IK, Hoogepriester van Helegabalus!
+
+--- Maar heel je gevolg, dat ik hoor lallen en lachen, dronken nog van dezen nacht, in de portiek?! Antoninus! Antoninus! Schaàm je!
+
+Hij kwam lachende, open de armen, op haar toe om haar te omhelzen.
+
+--- Ik wil je niet kussen! riep Mœza. Je lippen zijn nog bezoedeld! Ga weg, Antoninus, ga weg, neem een bad!
+
+--- Ik wil eerst het Palladium zien.
+
+--- Het Palladium? aarzelde Mœza.
+
+Aquilia Severa vouwde de handen.
+
+--- Clarissima... het Palladium: het is onzichtbaar... als ikzelve onaanroerbaar ben!
+
+De oude vrouw naderde de jonge maagd, omvatte haar in hare armen beide.
+
+--- Severa, zeide zij. Ik kom te laat. Bemiddelaarster wilde ik zijn tusschen mijn te veel geliefden Antoninus en jezelve. Tot zijn Gemalin wilde ik --- nu de Senaat goedkeurt --- je verheffen aan de zijde van Zijne Eeuwigheid, die, hoe hij zich op dit oogenblik ook ontwijdt en vergeet, heilig is en goddelijk, en in wie leeft de Incarnatie van Helegabalus. De wetten der menschen bestaan voor de goden niet, en de Senaat begreep dat en stemde toe.
+
+Als bevroor zij, verstarden de trekken der Maagd, verstarde geheel haar lichaam, vermarmerden bijna de plooien van haar gewaad en zij trok zich, achter-uit, uit de armen der oude vrouw, wier vleiende, suggereerende stem haar had pogen te bezweren...
+
+--- Zeg mij, Severa, ging Mœza voort --- zij stond voor de Maagd nog met de gestrekte armen van hare nu leêge omhelzing ---; zeg mij, dat je begrijpt de eer, die Antoninus aan Vesta en hare Hoogepriesteres aandoet... en... sta toe.
+
+De oude stem vleide, suggereerend; zij bezwoer; maar zij had hooger geklonken en zij dreigde te gelijker tijd. De Maagd voelde zich machteloos.
+
+--- Ik... begrijp... Clarissima, zeide zij, koud.
+
+--- En... je staat toe?
+
+Een huiver schokte Aquilia Severa nauwlijks de verstarde leden. Zij dacht, in een fellen flits, zich te dooden, zoû het zoo moeten, maar zij voelde zich, dadelijk na, heel vroom, Bewaakster van Vuur en Palladium, en zij wilde met geen gewelddadigen zelfdood prijsgeven zoo groote en heilige waardigheid. En --- geheel onbewust --- trilde er in haar bijna iets christelijks: de weelde martelares te zullen worden... Smeeking was niet meer in haar stem. Minachtend, laatdunkend herwon zij zich, richtte zich hoog; zij minachtte zoo wel dien keizer, als de Clarissima, die de heiligste tradities van Rome trad, om haar lievelings wenschen in te willigen. En zij zeide, met haar koude stem:
+
+--- Ik... sta... toe.
+
+--- Laat mij het Palladium zien, dwong Antoninus, als een kind.
+
+--- Zijn Eeuwigheid wenscht het Palladium te zien, gebood Mœza hoog, ontstemd door Severa's houding.
+
+--- Het Vuur en het Palladium, zei Antoninus; zullen Severa naar het Palatium vergezellen. Laat mij het Palladium zien... en het Vuur.
+
+Misschien aarzelde Mœza eén oogenblik... maar zij bleef toestaan. Zij was een Dochter der Zon; ook voor haar waren de mysteriën van Emessa van veel hoogere en heiligere waarde dan de mysteries van Romes godsdienst.
+
+Aquilia Severa stond als in slaapwandel... Rondom haar waren de vijf Maagden nu, en de slavinnen, getreden. Op bevel van Mœza had heel het gevolg van Antoninus het Huis van Vesta verlaten, om buiten op den keizer te wachten, waar de stemmen van het opgehoopte volk joelden en jouwden, toen de gunstelingen verschenen. Even luisterde Mœza, niet begrijpende, meenend, dat zij ongewone klanken vernam... Maar zij haalde de schouders op, niet achtende. Severa, ijzig, verstard, wilde haar aan de hand leiden door de portiek, die tot den ronden tempel toegang gaf, maar Mœza trok zich terug voor Antoninus, aan wien zij den voorrang schonk. De keizer, met zijn lachje, trad voor, slepende zijn bevlakten Bacchus-mantel. Alle de vrouwen volgden.
+
+In den tempel, dubbel de omgaande zuilengang, brandde hoog naar het koepeldak toe op rond middenaltaar de Vlam, het onuitbluschbare Vuur. Onder die vlam, in een heilige krypt, was verborgen het drie vademen hooge houten beeld van Pallas, het Trojaansche Palladium, volgens de legende door Aeneas zelve met zijn Penaten naar Italië overgebracht. Maar niemand dan de Vestalen wist van die bewaarplaats af...
+
+--- Toon mij het Palladium! dwong Antoninus.
+
+De Vestalen, uit een geheime kamer, die aan den tempel belendde, brachten een houten beeld. Het stelde de godin Pallas Athene voor, gehelmd, den speer in de hand, het schild hoog staande aan den voet. Zij torsten met grooten geveinsden eerbied het beeld en Aquilia Severa had niets dan een koele handbeweging om het te toonen... Het was een dier valsche beelden, die de Vestalen bewaarden, om in geval van dwang te vertoonen als het Palladium zelve.
+
+--- Toon mij de heilige vazen, dwong Antoninus weêr.
+
+Het waren de heilige vazen van Aeneas, die hij wilde zien, maar de Vestalen toonden hem, uit de zelfde schatkamer, de valsche vazen, en zij toonden hem die te gauw, zoo dat hij begreep... Ook twijfelde hij aan de echtheid van het Palladium, dat men hem toonde, en dat hij twijfelen moest, ergerde hem zoo, dat hij eene der vazen brak...
+
+--- Helegabalus is de hoogste, heiligste en opperste god, orakelde Antoninus, minachtend de scherven wegschoppende met zijn voet. Ik wil Hem, behalve in het Helegabalium, dienen in het Lararium ten Paleize, door er te verzamelen al wat in Rome het heiligst is... Het Vuur van Vesta, en het Palladium, en het gelaatlooze beeld van Rheia Kubele, en de heilige steenen, die Orestes eenmaal plaatste in den tempel van Diana van Laodicea... Severa, wèl nieuw lijkt mij het hout van het Palladium, en zoo leelijk dunkt mij dit vormelooze beeld, dat, als het waarlijk is wat ge zegt... wij het zullen laten vergulden. Morgen zullen wij de heilige dingen in groote eer naar het Palatium laten voeren...
+
+Zijn stem klonk dof; na den nacht van orgie overwon hem een doódelijke vermoeidheid. De Grootmoeder, aan hare hand, leidde hem terug, en hij glimlachte, van vermoeidheid plots wezenloos.
+
+--- Antoninus! zeide Mœza. Veèl volk staat buiten te wachten.
+
+--- Waarom? vroeg hij.
+
+--- Om je te zien.
+
+--- Welnu...
+
+--- Nooit zagen zij je zoó, mijn kind...
+
+Zijne ijdelheid, in hem, begreep, dat hij zich vermommen moest, en dat hij, in het daglicht, hoog aan den hemel, niet zich vertoonen kon in de wanorde van zijn vermoeidheid.
+
+--- U heeft gelijk, Grootmoederlijkheid, zeide Antoninus, fronsend de brauwen. Geef mij een palla, van een uwer vrouwen.
+
+Hij sloeg den bevlakten mantel af en hulde zich dicht, tot onzichtbaar toe, in de palla, die hij zich over het hoofd sloeg. Achter Mœza volgde hij, als een slavin, en steeg met haar in haar draagstoel. Maar het volk herkende hem toch, en het riep:
+
+--- Antoninus! Neen, Avitus! Sardanapalus!
+
+Hij hoorde de namen niet: zijn eigene, waarvan hij had afstand gedaan om den geliefden naam van Antoninus, en dien van Sardanapalus, als scheldnaam bedoeld... Hij hoorde de namen niet: hij was heel moê en door zijne moêheid waasde vaag de gedachte, of Hydaspes wel tevreden over hem zijn zoû... Maar de oude Mœza verschrikte. Dicht rukte zij de gordijnen der lectica, die wegwiegelde op de draging van twaalf slaven.
+
+--- Sardanapalus!! schreeuwde men na.
+
+De keizerlijke wagen met het hertengespan keerde leêg terug ten Paleize. De gunstelingen en het gevolg verspreidden zich.
+
+--- Heiligschenners! riep hun het volk.
+
+De tribuun Aristomachos, die juist zijn paard besteeg, trok in een drift zijn zwaard, gaf een bevel aan de wacht der Praetorianen, die den keizer had vergezeld, maar niet zich bij Mœza's gevolg had geschaard.
+
+De argyraspiden hieuwen er in... Dadelijk stoof het volk uit een, maar tòch schold het Gordus, Murissimus toe:
+
+--- Onverlaten! Aterlingen! Heiligschenners!!
+
+Zij waren in hunne nog van beschonkenheid benevelde denkvermogens lichtelijk verwonderd om het gejouw en meenden eigenlijk, dat zij slecht hadden gehoord, en dat het volk Antoninus had toegejuicht, en nu alleen schold om Aristomachos' noodlooze drift...
+
+De Vestalen, weenende, drongen om de Virgo Maxima... Zij stond als versteend en verstard, en nòg eenmaal dacht zij zich te dooden... Maar neen, zij moest martelares zijn voor de godin, die het hoogste zij telde! En zij murmelde alleen, terwijl puilende hare oogen staarden --- de slavinnen en Maagden snikkende rondom haar heen, handen wringende en kleederen scheurende:
+
+--- Het Vuur naar het Palatium! Het Palladium naar het Palatium! De Virgo Maxima de Gemalin van den keizer, naast diens Gemaal! En de wereld blijft die zij was! Geen bliksem valt uit den hemel?! O Vesta... o Jupiter... o Goden... hebt gij Rome àllen verlaten, omdat Helegabalus zegeviert, en voor de heiliging van zijn mysteriën noodig heeft de ontheiliging van de uwe!!!
+
+EINDE VAN HET TWEEDE DEEL.
+
 ...
